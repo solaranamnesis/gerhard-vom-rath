@@ -6,5 +6,5 @@ Public Domain Works by Gerhard vom Rath (1830-1888).
 
 English - Plain Text  
 English - PDF  
-German - Plain Text | German - (GFM) Plain Text  
+[German - Plain Text](meteoriten-von-pultusk/full-text-german.md) | German - (GFM) Plain Text  
 German - PDF | Biolinum | Fraktur | Schwabacher  
