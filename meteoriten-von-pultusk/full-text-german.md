@@ -34,77 +34,11 @@ Der kleine Stein, welchen die Figg. 2_a_ und _b_ in natürlicher Grösse darstel
 
 Die Untersuchung einer sehr grossen Zahl von Pultusker Steinen beweist, dass dieser Steinregen nicht der Zertrümmerung Eines kosmischen Körpers seine Entstehung verdanken kann, dass vielmehr ein Schwarm grösserer und kleinerer planetarischer Individuen in den Anziehungskreis der Erde gelangte, welche der Mehrzahl nach zertrümmert wurden, doch nicht immer in dem Maasse, dass es nicht zuweilen möglich wäre, die kosmische Gestalt zu bestimmen, welche eine stark abgeplattet sphäroidale oder dickscheibenförmige war.
 
-Bevor wir einige der stärker zertrümmerten Formen, Meteoritenfragmente
-und -Splitter, näher kennen lernen, ist noch eine zweifache Färbung der
-Schmelzrinde zu erwähnen, wie sie an sehr vielen Stücken und besonders
-deutlich am Steine Fig. 2 zu beobachten ist. Die Rinde ist entweder schwarz,
-dies ist der gewöhnliche Fall und die Steine gleichmässig überrindet; oder
-röthlichbraun, welche Färbung vorzugsweise den Bruchflächen zukommt. An
-dem Steine Fig. 2 und so an vielen andern bemerkt man, dass derselbe zunächst
-von einer gleichmässigen röthlichbraunen Rinde bedeckt ist, welche sehr dünn,
-keine deutliche Schmelzgrate aufweist. Ueber diesen ersten Schmelz ist
-ein zweiter schwarzer, schimmernder geflossen, auf der Brustwölbung seinen
-Ursprung nehmend, in feinen Graten und spitzen Zungen über die Flanken
-hinwegspritzend, um auf der Hinterseite sich wieder zu vereinigen. Der
-schwarze Schmelz ist das Produkt einer höheren oder anhaltenderen Hitze,
-in Folge deren eine vollständigere Schmelzung des Steins erfolgte und na-
-mentlich eine reichlichere Menge des Eisens in die Schlacke trat. So erklären
-sich einfach die beiden Erscheinungen, dass der schwarze Schmelz über den
-röthlichbraunen geflossen ist, und dass neuere Bruchflächen nur mit röthlich-
-brauner Rinde bedeckt sind. Diese sich gleichsam von selbst bietende Er-
-klärung wird auch durch das Löthrohr bestätigt: bei anhaltendem und starkem
-Blasen verwandeln sich kleine Steinsplitter in eine theilweise geschmolzene
-schwarze Masse, welche der natürlichen Rinde sehr ähnlich ist, bei geringe-
-rer Hitze nimmt die Oberfläche röthlichbraune Farbe an. Denselben Farben-
-unterschied der Schmelzrinde, wie Pultusk, weist auch Aigle auf, dessen
-Steine den polnischen überhaupt sehr ähnlich sind.
+Bevor wir einige der stärker zertrümmerten Formen, Meteoritenfragmente und -Splitter, näher kennen lernen, ist noch eine zweifache Färbung der Schmelzrinde zu erwähnen, wie sie an sehr vielen Stücken und besonders deutlich am Steine Fig. 2 zu beobachten ist. Die Rinde ist entweder schwarz, dies ist der gewöhnliche Fall und die Steine gleichmässig überrindet; oder rötlichbraun, welche Färbung vorzugsweise den Bruchflächen zukommt. An dem Steine Fig. 2 und so an vielen andern bemerkt man, dass derselbe zunächst von einer gleichmässigen rötlichbraunen Rinde bedeckt ist, welche sehr dünn, keine deutliche Schmelzgrate aufweist. Über diesen ersten Schmelz ist ein zweiter schwarzer, schimmernder geflossen, auf der Brustwölbung seinen Ursprung nehmend, in feinen Graten und spitzen Zungen über die Flanken hinwegspritzend, um auf der Hinterseite sich wieder zu vereinigen. Der schwarze Schmelz ist das Produkt einer höheren oder anhaltenderen Hitze, in Folge deren eine vollständigere Schmelzung des Steins erfolgte und namentlich eine reichlichere Menge des Eisens in die Schlacke trat. So erklären sich einfach die beiden Erscheinungen, dass der schwarze Schmelz über den rötlichbraunen geflossen ist, und dass neuere Bruchflächen nur mit rötlichbrauner Rinde bedeckt sind. Diese sich gleichsam von selbst bietende Erklärung wird auch durch das Löthrohr bestätigt; bei anhaltendem und starkem Blasen verwandeln sich kleine Steinsplitter in eine teilweise geschmolzene schwarze Masse, welche der natürlichen Rinde sehr ähnlich ist, bei geringerer Hitze nimmt die Oberfläche rötlichbraune Farbe an. Denselben Farbenunterschied der Schmelzrinde, wie Pultusk, weist auch Aigle auf, dessen Steine den polnischen überhaupt sehr ähnlich sind.
 
-Früher war man wohl geneigt, ringsumrindete Meteoriten für komische
-Individuen, für "ganze Steine" zu halten. Schon v.Haidinger hatsich gegen
-diese Meinung erklärt (Sitz.-Ber. d. kais. Ak. d. Wiss. 19. April 1860) und
-Nichts kann überzeugender für ihn sprechen als die Betrachtung des durch
-Figg. 3 und 6 in halber natürlicher Grösse dargestellten, vollkommen um-
-rindeten Steins, welcher offenbar ein Fragment ist, von so ausgezeichnet
-zerbrochener Gestalt, wie sie vermuthlich noch an keinem Meteoriten beob-
-achtet wurde. Die ursprüngliche Form des kosmischen Körpers war wohl
-‘auch hier ein fiaches Sphäroid, dessen breitere Flächen in den Figg. 3a, 5
-nach vorne gerichtet sind. Diese Flächen, eben oder sanftgerundet und mit
-einer gleichmässigen schwarzen Rinde bedeckt, entsprechen wohl im Allge-
-meinen der Oberfläche des kosmischen Körpers. Die in beiden Figuren zur
+Früher war man wohl geneigt, ringsumrindete Meteoriten für komische Individuen, für "ganze Steine" zu halten. Schon v. Haidinger hat sich gegen diese Meinung erklärt (Sitz.-Ber. d. kais. Ak. d. Wiss. 19. April 1860) und Nichts kann überzeugender für ihn sprechen als die Betrachtung des durch Figg. 3_a_ und _b_ in halber natürlicher Grösse dargestellten, vollkommen umrindeten Steins, welcher offenbar ein Fragment ist, von so ausgezeichnet zerbrochener Gestalt, wie sie vermutlich noch an keinem Meteoriten beobachtet wurde. Die ursprüngliche Form des kosmischen Körpers war wohl auch hier ein flaches Sphäroid, dessen breitere Flächen in den Figg. 3_a_, _b_ nach vorne gerichtet sind. Diese Flächen, eben oder sanftgerundet und mit einer gleichmässigen schwarzen Rinde bedeckt, entsprechen wohl im Allgemeinen der Oberfläche des kosmischen Körpers. Die in beiden Figuren zur Rechten liegenden Flächen, welche die kosmische Scheibe normal zu ihrer Breite durchschneiden, sind nur mit einem dünnen rötlichbraunen Schmelz bedeckt und zeigen ein von den ursprünglichen Oberflächen-Teilen ganz verschiedenes Relief. Die im Allgemeinen ebene, in 3_a_ sichtbare Bruchfläche besitzt eine eigentümliche Längsfurchung, deren Ursache wir alsbald in den mit Nickeleisen-Blättern bedeckten Spiegelflächen finden werden. Über die scharfe Kante dieser Bruchfläche (in Fig. 3_a_ nach unten gerichtet) legt sich, den rotbraunen Schmelz der Bruchfläche bedeckend, ein umgebogener Saum der schwarzen Rindenmasse hinweg. Die andere Bruchfläche, Fig. 3_b_, wird durch zwei unter etwa 125° zusammenstossende Ebenen von höckeriger Oberfläche gebildet. Der Stein Fig. 3 lässt demnach keinen Zweifel übrig, dass das Erglühen und die Oberflächenschmelzung schon vor der Zertrümmerung stattfand und, in diesem speziellen Falle wenigstens, mit geringerer Intensität nach dem Zerbrechen fortdauerte.
 
-
-
-
-Rechten liegenden Flächen, welehe die kosmische Scheibe normal zu ihrer
-Breite durchschneiden, sind nur mit einem dünnen röthlichbraunen Schmelz
-bedeckt und zeigen ein von den ursprünglichen Oberflächen-Theilen ganz
-verschiedenes Relief. Die im Allgemeinen ebene, in 3a sichtbare Bruchfläche
-besitzt eine eigenthümliche Längsfurchung, deren Ursache wir alsbald in
-den mit Nickeleisen-Blättern bedeckten Spiegelflächen finden werden. Ueber
-die scharfe Kante dieser Bruchfläche (in Fig. 3a nach unten gerichtet) legt
-sich, den rothbraunen Schmelz der Bruchfläche bedeckend, ein umgebogener
-Saum der schwarzen Rindenmasse hinweg. Die andere Bruchfläche, Fig. 35,
-wird durch zwei unter etwa 125" zusammenstossende Ebenen von höckeriger
-Oberfläche gebildet. Der Stein Fig. 3 lässt demnach keinen Zweifel übrig,
-dass das Erglühen und die Oberflächenschmelzung schon vor der Zertrüm-
-merung stattfand und, in diesem speciellen Falle wenigstens, mit geringerer
-Intensität nach dem Zerbrechen fortdauerte.
-
-. Einen seltsam geformten Stein, bis auf kleine Beschädigungen von einer
-gleichartigen schwarzen Rinde umschlossen, stellt Fig. 5 in halber Grösse
-dar. Die in Fig. a zur Rechten verkürzte Fläche erscheint in 5 nach vorne
-gewandt, um ihre charakteristischen Vertiefungen zu zeigen. Dieser Meteorit
-trägt auf der in 5a nach vorne gewandten Fläche eine ganz flache schmale
-Wulst, welche von einem äusserst dünnen bräunlichen Schmelz bedeckt ist.
-Entfernt man diesen letztern, so zeigt sich darunter Nickeleisen. Solche
-niedere Wülste, welche sich zuweilen gleich Schnüren um den Stein ziehen,
-verrathen schon an der Oberfläche das Vorhandensein von mit Eisenlamellen
-bedeckten Ablösungen im Innern des Meteoriten. Auch der grössere der
-beiden Steine von Gütersloh (17. April 1851) im Berliner Cabinet zeigt eine
-solche gestreckte Eisenpartie. Dieser westphälische Stein besitzt überhaupt
-einen fast identischen Oberflächen-Charakter wie die Pultusker Meteoriten: er
-ist Fragment eines Sphäroids, ist theils ebenflächig, theils von (mit rundlichen
-Vertiefungen versehenen) Bruchflächen begrenzt, doch gleichartig umrindet.
+Einen seltsam geformten Stein, bis auf kleine Beschädigungen von einer gleichartigen schwarzen Rinde umschlossen, stellt Fig. 5 in halber Grösse dar. Die in Fig. _a_ zur Rechten verkürzte Fläche erscheint in _b_ nach vorne gewandt, um ihre charakteristischen Vertiefungen zu zeigen. Dieser Meteorit trägt auf der in 5_a_ nach vorne gewandten Fläche eine ganz flache schmale Wulst, welche von einem äusserst dünnen bräunlichen Schmelz bedeckt ist. Entfernt man diesen letztern, so zeigt sich darunter Nickeleisen. Solche niedere Wülste, welche sich zuweilen gleich Schnüren um den Stein ziehen, verraten schon an der Oberfläche das Vorhandensein von mit Eisenlamellen bedeckten Ablösungen im Innern des Meteoriten. Auch der grössere der beiden Steine von Gütersloh (17. April 1851) im Berliner Kabinet zeigt eine solche gestreckte Eisenpartie. Dieser westphälische Stein besitzt überhaupt einen fast identischen Oberflächen-Charakter wie die Pultusker Meteoriten: er ist Fragment eines Sphäroids, ist teils ebenflächig, teils von (mit rundlichen Vertiefungen versehenen) Bruchflächen begrenzt, doch gleichartig umrindet.
 
 Der Fig. 4a, 5, c in natürlicher Grösse abgebildete ganzumrindete Stein
 von trapezoidischem Umriss lässt in ausgezeichnetster Weise den Unterschied
@@ -113,9 +47,6 @@ gewölbt und entspricht offenbar einem Theile der kosmischen Gestalt. Die
 Rückenseite ist durch Bruchflächen gebildet, welche uneben, kleinhöckerig
 von dünnem glänzendem Schmelz bedeckt sind. Vom Scheitel der Oberseite
 ziehen, besonders deutlich auf dem erhaltenen Theile der Flanken, Fig. 4c,
-
-
-
 sichtbar, feine Schmelzrinden-Wülste herab. Die reichlichere Schmelzrinde der
 Brust legt sich in einem zusammenhängenden erhabenen Saume über den
 dünnen Schmelz der Bruchfläche des Rückens hinweg, 45 linke. Auch bei
@@ -152,12 +83,8 @@ losbröckelnden Theile konnten, wenn sie in die Luftleere hinter dem plane-
 tarisch bewegten, mit seiner Brust gegen den stets wachsenden Atmosphären-
 druck ankämpfenden Aerolithen gelangten, eine grössere Geschwindigkeit
 als der Hauptkörper annehmen und auf dessen Hinterseite, in der Feuerkugel
-
-"  erglähend, sich wieder mit ihm vereinigen. Auch der Stein Fig. 8 bietet
+erglähend, sich wieder mit ihm vereinigen. Auch der Stein Fig. 8 bietet
 auf seiner oonkav verbrochenen Rückseite einige angeschmolzene Meteoriten-
-
-
-
 Körner dar. Noch an einem dritten, grösseren Steine von Pultusk in der
 Krantz'schen Sammlung (in den drei Dimensionen messend 85, 60, 45 Mm.),
 dessen Schmelzrinde ' Mm. erreicht, haftet auf der Rückenseite ein durch
@@ -195,9 +122,6 @@ peratur darbieten. Der in das Innere eindringende schwarze Schmelz ver-
 leiht dem Gesteinsbruche nicht selten ein breccienartiges Ansehen. Von
 allen Seiten, durch jede Kluft und Oeffnung, strebte unter dem wachsenden
 Atmosphärendruck die flüssige und schäumende Rinde in den aus dem
-
-a
-
 
 
 luftleeren Universum kommenden Stein einzudringen. Das körnige Gefüge
@@ -238,10 +162,6 @@ geseichnetem, gestreiften Eisenspiegel bedeckte Ablösungsflächen. Diese
 Spiegelflächen. boten nachweislich oft Veranlassung zur Trennung des Steins
 bei seinem Eintritt in die tellurische Sphäre. Manche unvollkommen über-
 rindete Bruchflächen lassen deutlich erkennen, dass sie ehemals gefurchte
-
-. a
-
-
 
 Eisenspiegel waren. Metallische Harnische, wie bei den Pultuskern, bieten
 der Erklärung nicht geringe Schwierigkeiten dar. Dass sie kosmischer und
