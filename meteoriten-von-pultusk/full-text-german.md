@@ -1,234 +1,38 @@
-Am 30. Januar gegen 7 Uhr Abends sahen die Bewohner Warschau’s ein
-glänzendes Meteor, welches fast mit Tageshelle Stadt und Gegend erleuch-
-tete. Etwa drei Minuten nach Verlöschen des Lichts wurde eine sehr starke
-Detonation, wie von mehreren Kanonenschüssen vernommen, in Folge derer
-an manchen Häusern Warschau’s die Fensterscheiben sprangen '). Die Ursache
-jener Erscheinung war ein grossartiger Aerolithenfall, welcher sich 9'/; Meilen
-von Warschau entfernt, an der Narew zwischen Pultusk und Östrolenka im
-District Makow, Gouvernement Plock, ereignete. Das Phänomen von Pultusk,
-eines der grossartigsten, welches jemals beobachtet wurde, schliesst sich
-sowohl in Bezug auf die den Fall begleitenden Erscheinungen, als auch in
-Hinsicht der Zahl und Beschaffenheit der Steine, und der Ausdehnung ihres
-Verbreitungsbezirks auf das Engste an jenen berühmten Steinregen von
-Aigle, Dep. de l’Orne, (1803) an, welchem sich bereits Stannern (1807) und
-Knyahinya (1866) anreihten. Es fielen bei Pultusk viele Tausend, wahr-
-scheinlich sogar Hunderttausende von Steinen über einen Raum von mehreren
-Qüadratmeilen Ausdehnung. Die Leuchtkugel, aus welcher die Steine her-
-ausgeschleudert zu werden schienen, soll die Hälfte der scheinbaren Mond-
-grösse gezeigt haben, und wurde in ganz Polen, einem Theile von Galizien,
-Ungarn, Mähren, Böhmen, in den Provinzen Schlesien, Posen, Preussen,
+# Über die Meteoriten von Pultusk im Königreich Polen, gefallen am 30. Januar 1868.
 
-1) Vgl. N. Jahrb. v. Leonhard und Geinitz, 1868, S. 326: Briefliche Mittheilung von Dr. Carl
+## Von Dr. G. vom Rath.
 
-. 8zymanski. Site.-B. d. k. Akad. d. Wissensch. LVO B. II. Abth. März-Heft (1868) v. Haidinger: Der
-.  “Meteorsteinfall unweit Warschau.
-* .
+### Hierzu 1 Tafel.
 
+#### Besonders abgedruckt aus der Festschrift der Niederrheinischen Gesellschaft für Natur- und Heilkunde zum 50jährigen Jubiläum der Universität Bonn.
 
-ja bis Wernigerode am Harze, d. h. auf einem Raume von mehr als fünf
-Tausend Quadratmeilen erblickt. Unter heftigen Detonationen fand die
-Zerträmmerung der kosmischen Massen in die fast zahllosen Meteoriten-
-splitter statt, welche einen wahren Steinschauer bildeten. Wenn die Nach-
-richten, dass einzelne Steine des Phänomens von Pultusk auch im Kreise
-Plessen, Provinz Posen, niederstürzten, auf Wahrheit beruhen, so würde der
-Schleuderbezirk unseres Falls der grösste sein, welcher jemals beobachtet
-wurde und eine Ausdehnung von vierzig geographischen Meilen besitzen.
+Am 30. Januar gegen 7 Uhr Abends sahen die Bewohner Warschaus ein glänzendes Meteor, welches fast mit Tageshelle Stadt und Gegend erleuchtete. Etwa drei Minuten nach Verlöschen des Lichts wurde eine sehr starke Detonation, wie von mehreren Kanonenschüssen vernommen, in Folge derer an manchen Häusern Warschaus die Fensterscheiben sprangen.* Die Ursache jener Erscheinung war ein grossartiger Aerolithenfall, welcher sich 9 1/2 Meilen von Warschau entfernt, an der Narew zwischen Pultusk und Ostrolenka im Distrikt Makow, Gouvernement Plock, ereignete. Das Phänomen von Pultusk, eines der grossartigsten, welches jemals beobachtet wurde, schliesst sich sowohl in Bezug auf die den Fall begleitenden Erscheinungen, als auch in Hinsicht der Zahl und Beschaffenheit der Steine, und der Ausdehnung ihres Verbreitungsbezirks auf das Engste an jenen berühmten Steinregen von Aigle, Dep. de l'Orne, (1803) an, welchem sich bereits Stannern (1807) und Knyahinya (1866) anreihten. Es fielen bei Pultusk viele Tausend, wahrscheinlich sogar Hunderttausende von Steinen über einen Raum von mehreren Quadratmeilen Ausdehnung. Die Leuchtkugel, aus welcher die Steine herausgeschleudert zu werden schienen, soll die Hälfte der scheinbaren Mondgrösse gezeigt haben, und wurde in ganz Polen, einem Teile von Galizien, Ungarn, Mähren, Böhmen, in den Provinzen Schlesien, Posen, Preussen, ja bis Wernigerode am Harze, d. h. auf einem Raume von mehr als fünf Tausend Quadratmeilen erblickt. Unter heftigen Detonationen fand die Zertrümmerung der kosmischen Massen in die fast zahllosen Meteoritensplitter statt, welche einen wahren Steinschauer bildeten. Wenn die Nachrichten, dass einzelne Steine des Phänomens von Pultusk auch im Kreise Plessen, Provinz Posen, niederstürzten, auf Wahrheit beruhen, so würde der Schleuderbezirk unseres Falls der grösste sein, welcher jemals beobachtet wurde und eine Ausdehnung von vierzig geographischen Meilen besitzen.
 
-Es kann nicht Zweck gegenwärtiger Arbeit sein, die Nachrichten über
-die Erscheinung und den Niederfall der Aerolithen von Pultusk oder die
-Resultate der Untersuchungen über die Bahn, Fluggeschwindigkeit und an-
-dere Momente, welche zur Gesammtkenntniss jenes grossartigen Phänomens
-gehören, hier mitzutheilen, da einer ausführlichen die Fall-Erscheinungen
-selbst betreffenden Arbeit des Professor Galle, Directors der Breslauer
-Sternwarte, entgegengesehen werden darf, nachdem derselbe bereits einen
-vorläufigen Bericht über das Phänomen vom 30. Januar in einer Sitzung der
-„Schlesischen Gesellsch. f. vaterländische Cultur” erstattete.
+*) Vgl. N. Jahrb. v. Leonhard und Geinitz, 1868, S. 326: Briefliche Mitteilung von Dr. Carl Szymanski. Sitz.-B. d. k. Akad. d. Wissensch. 57. B. 3. Abt. März-Heft (1868) v. Haidinger: Der Meteorsteinfall unweit Warschau.
 
-Die in vorliegender Arbeit enthaltenen Untersuchungen, zu denen mir
-über zwölf Hundert im Besitze des Hrn. Dr. A. Krantz befindliche Me-
-teoriten von Pultusk mit freundlicher Zuvorkommenbheit zur Verfügung ge-
-stellt wurden, erstrecken sich demnach nur auf die Steine selbst, ihre Form,
-Struktur und mineralogisch-chemische Beschaffenheit. Die Vergleichung der
-Steine dieses jüngsten Falls mit früheren geschah theils in der reichhaltigen
-Sammlung des Dr. Krantz, vorzüglich aber im Königl. Mineralien-Cabinet
-zu Berlin, dessen Meteoriten-Sammlung eine so grosse Bedeutung erlangt
-hat, theils wegen ihres Reichthums, theils wegen ihrer Beschreibung und
-Eintheilung durch G. Rose, welcher in gleicher Weise die Principien der
-Eintheilung für die kosmischen') wie für die tellurischen Gesteine aufge-
-stellt hat. Geh. Rath G. Rose erlaubte eine sorgfältige Durchmusterung
-und Vergleichung der Berliner Meteoriten zum Zwecke der Beschreibung
-der Pultusker Steine.
+Es kann nicht Zweck gegenwärtiger Arbeit sein, die Nachrichten über die Erscheinung und den Niederfall der Aerolithen von Pultusk oder die Resultate der Untersuchungen über die Bahn, Fluggeschwindigkeit und andere Momente, welche zur Gesammtkenntniss jenes grossartigen Phänomens gehören, hier mitzuteilen, da einer ausführlichen die Fall-Erscheinungen selbst betreffenden Arbeit des Professor Galle, Direktors der Breslauer Sternwarte, entgegengesehen werden darf, nachdem derselbe bereits einen vorläufigen Bericht über das Phänomen vom 30. Januar in einer Sitzung der "Schlesischen Gesellsch. f. vaterländische Kultur" erstattete.
 
-Die Meteoriten von Pultusk sind von der gewöhnlichen Art, sie gehö-
-ren zu G. Rose’s erster Abtheilung der Steinmeteoriten, den Chondriten,
+Die in vorliegender Arbeit enthaltenen Untersuchungen, zu denen mir über zwölf Hundert im Besitze des Hrn. Dr. A. Krantz befindliche Meteoriten von Pultusk mit freundlicher Zuvorkommenheit zur Verfügung gestellt wurden, erstrecken sich demnach nur auf die Steine selbst, ihre Form, Struktur und mineralogisch-chemische Beschaffenheit. Die Vergleichung der Steine dieses jüngsten Falls mit früheren geschah teils in der reichhaltigen Sammlung des Dr. Krantz, vorzüglich aber im Königl. Mineralien-Kabinet zu Berlin, dessen Meteoriten-Sammlung eine so grosse Bedeutung erlangt hat, teils wegen ihres Reichtums, teils wegen ihrer Beschreibung und Einteilung durch G. Rose, welcher in gleicher Weise die Principien der Einteilung für die kosmischen* wie für die tellurischen Gesteine aufgestellt hat. Geh. Rath G. Rose erlaubte eine sorgfältige Durchmusterung und Vergleichung der Berliner Meteoriten zum Zwecke der Beschreibung der Pultusker Steine.
 
-1) VgL G. Rose, Beschreibung und Eintheilung der Meteoriten. Abb. d. k. Akad. d. Wissensch.
-zu Berlin, 1868. oo.
+Die Meteoriten von Pultusk sind von der gewöhnlichen Art, sie gehören zu G. Roses erster Abteilung der Steinmeteoriten, den Chondriten, welche in einer Steinmasse Körner von Nickeleisen ausgeschieden zeigen und vorzugsweise charakterisirt sind durch kleine Kugeln, welche mehr oder weniger häufig in der Grundmasse liegen.
 
+*) Vgl. G. Rose, Beschreibung und Einteilung der Meteoriten, Abh. d. k. Akad. d. Wissensch. zu Berlin, 1863.
 
+Was bei Betrachtung der Pultusker Steine zunächst in die Augen fällt, ist der Umstand, dass sie fast ausnahmslos von einer schwarzen Schmelzrinde ganz umgeben sind, selbst die kleinsten Fragmente, deren Gewicht bis zu 1 Gr. hinabgeht.* Es ist dies ein Beweis, dass die Zertrümmerung des kosmischen Körpers oder richtiger des Schwarms kosmischer Körper, welche den Aerolithenfall bedingten, bereits an der äusseren Grenze der Atmosphäre stattfand, wo die Bewegung der planetarischen Massen noch eine so grosse ist, dass die Bruchflächen bei Vernichtung jener kosmischen Bewegung mit einer Schmelzrinde sich bedecken konnten. In den tieferen Regionen unseres Luftkreises vermindert sich bekanntlich die Fluggeschwindigkeit der Meteoriten so sehr, dass die in diesen Regionen etwa neu entstehenden Bruchflächen sich nicht mehr mit einer Schmelzhülle bekleiden können. Auch die Steinregen von Aigle, Stannern, Knyahinya lieferten fast ausschliesslich ganz umrindete Meteoriten.
 
-welche in einer Steinmasse Körner von Nickeleisen ausgeschieden zeigen
-und vorzugsweise charakterisirt sind durch kleine Kugeln, welche mehr oder
-weniger häufig in der Grundmasse liegen.
+*) Von wie geringer Grösse die Mehrzahl der Pultusker Steine ist, geht aus der Tatsache hervor, dass Dr. Krantz auf 1 Kilogr. 212 ganz umrindete Meteoriten zählte.
 
-Was bei Betrachtung der Pultusker Steine zunächst in die Augen fällt,
-ist der Umstand, dass sie fast ausnahmslos von einer schwarzen Schmelz-
-rinde ganz umgeben sind, selbst die kleinsten Fragmente, deren Gewicht
-bis zu 1 Gr. hinabgeht'). Es ist dies ein Beweis, dass die Zertrümmerung
-des kosmischen Körpers oder richtiger des Schwarms kosmischer Körper,
-welche den Aerolithenfall bedingten, bereits an der äusseren Grenze der
-Atmosphäre stattfand, wo die Bewegung der planetarischen Massen noch eine
-so grosse ist, dass die Bruchflächen bei Vernichtung jener kosmischen Be-
-wegung mit einer Schmelzrinde sich bedecken konnten. In den tieferen
-Regionen unseres Luftkreises vermindert sich bekanntlich die Fluggeschwin-
-digkeit der Meteoriten so sehr, dass die in diesen Regionen etwa neu ent-
-stehenden Bruchflächen sich nicht mehr mit einer Schmelzhülle bekleiden
-können. Auch die Steinregen von Aigle, Stannern, Knyahinya lieferten
-fast ausschliesslich ganz umrindete Meteoriten.
+Die grosse Mehrzahl der Pultusker Aerolithen bietet durchaus unregelmässige Formen dar: sphäroidisch, trapezoidal, pyramidal, keilförmig, ja scharfkantig einem Feuerstein-Messer nicht unähnlich. Es ist unmöglich, die Gestalten, wie sie jetzt vorliegen, unter einem allgemeineren Gesichtspunkte zusammenzufassen. Denn wir haben es augenscheinlich mit Fragmenten und Splittern zu tun, welche durch Zertrümmerung kosmischer Körper, deren zahllosen Spaltungs- und Ablösungsflächen folgend, entstanden.
 
-Die grosse Mehrzahl der Pultusker Aerolithen bietet durchaus unregel-
-mässige Formen dar: sphäroidisch, trapezoidal, pyramidal, keilförmig, ja
-scharfkantig einem Feuerstein-Messer nicht unähnlich. Es ist unmöglich,
-die Gestalten, wie sie jetzt vorliegen, unter einem allgemeineren Gesichts-
-punkte zusammenzufassen. Denn wir haben es augenscheinlich mit Fragmen-
-ten und Splittern zu thun, welche durch Zertrümmerung kosmischer Körper,
-deren zahllosen Spaltungs- und Ablösungsflächen folgend, entstanden.
+Unterstützt durch die sehr grosse Zahl der mir zur Untersuchung vorliegenden Steine musste ich mir zunächst die Aufgabe stellen, trotz der Zertrümmerung und Deformirung, welche die Pultusker Steine im tellurischen Teile ihrer Bahn erlitten, ihre kosmische Gestalt zu ermitteln. Es ist mir zwar nicht gelungen, die ursprünglichen, planetarischen Gestalten im eigentlichen Wortsinne aus den Fragmenten wieder zusammen zu setzen, wenngleich man an den letzteren nicht selten korrespondirende Bruchflächen zu erkennen glaubt; denn allzuviel haben die Trümmer auf ihrem feurigen Fluge verloren, sei es in abschmelzenden Steintropfen oder in losbröckelnden Körnern. Dennoch gestatten einige der grösseren Steine, indem sie auf das Deutlichste Segmente der kosmischen Körper bilden, die ursprüngliche Form zu bestimmen, während einige der kleineren Steine von auffallend regelmässiger Gestalt wahrscheinlich unzertrümmerte planetarische Sphäroide sind.
 
-Unterstützt durch die sehr grosse Zahl der mir zur Untersuchung vor-
-liegenden Steine musste ich mir zunächst die Aufgabe stellen, trotz der
-Zertrümmerung und Deformirung, welche die Pultusker Steine im telluri-
-schen Theile ihrer Bahn erlitten, ihre kosmische Gestalt zu ermitteln. Es
-ist mir zwar nicht gelungen, die ursprünglichen, planetarischen Gestalten im
-eigentlichen Wortsinne aus den Fragmenten wieder zusammen zu setzen,
-wenngleich man an den letzteren nicht selten korrespondirende Bruchflächen
-zu erkennen glaubt; denn allzuviel haben die Trümmer auf ihrem feurigen
-Fluge verloren, sei es in abschmelzenden Steintropfen oder in losbröckelnden
-nt —
+Eine der ausgezeichnetsten Formen unter den Pultusker Steinen ist diejenige, welche die Figg. 1_a_, _b_, _c_ in halber natürlicher Grösse darstellen. Dieser Meteorit, dessen Gewicht 870 Gr. beträgt, bildet ein von zwei ungefähr rechtwinklig zu einander stehenden Bruchflächen (α und β) begrenztes Segment eines dickscheibenförmigen Sphäroids. Der sich einem Kreissegmente nähernde Rand (γ) stellt die ursprüngliche Peripherie des planetarischen Körpers dar. Während die Bruchflächen α und β in vertikalen Schnitten die Dicke des abgeplatteten Sphäroids zeigen, schärft sich letzteres längs des Kreissegmentes γ zu einem mehr oder weniger scharfen Rande zu. Die in den Figg. 1_a_ und _b_ dargestellten beiden Seiten unseres Steins besitzen eine auffallend verschiedene Oberflächen-Beschaffenheit. 1_a_, die Brust- oder Vorderseite ist höher gewölbt und zu sanft abgerundeten Buckeln gestaltet, 1_b_, die Rücken- oder Hinterseite wird vorzugsweise durch einen in seiner allgemeinen Lage ebenen Bruch von eigentümlich kleinhöckeriger Oberfläche gebildet, welcher eine spätere Entstehung verrät. Während nämlich die den ganzen Stein bis auf einige Beschädigungen desselben rings bedeckende Schmelzrinde auf der Brustseite und auf den Flanken schwarz, von ungefähr gleichmässiger Dicke, etwa 1/5 Mm., nur schimmernd oder fast glanzlos ist, zeigt die kleinhöckerige Bruchfläche der Rückenseite eine dünnere Schmelzrinde von metallartigem, fast kupferrotem Glanz. Die Brustseite unseres Meteoriten wird durch das Vorhandensein und die Richtung der Schmelzrinden-Grate, oder -Säume in überzeugendster Weise charakterisirt, und hierdurch zugleich ein Mittel geboten, die Lage des Steins im tellurischen Teile seiner Flugbahn zu bestimmen. Von Haidinger war der erste, welcher aus der Beschaffenheit und Gestalt der Oberfläche von Meteoriten die Lage derselben in ihrer Bahn kennen lehrte. Zwei Steine von Stannern (22. Mai 1808) wurden durch die in Folge des Luftwiderstandes umgestülpten Schmelzrinden-Säume in Bezug auf ihre Lage zur Bahn bestimmt; bei einem Steine von Gross-Divina (24. Juli 1837) geschah es nach dem Unterschiede der Brust- und Rückenseite (Sitz.-Ber. d. Kais. Ak. d. Wiss. 1860, 19. April u. Sitz. 1862, Sitz. 22. Mai). Die Steine von Stannern (Eukrit) besitzen in Folge ihrer relativ leichteren Schmelzbarkeit eine dicke glänzende Rinde, welche von der Brustwölbung gegen die Flanken in hohen, scharf hervortretenden, verästelten Graten erhoben und längs den die Rückenseite begrenzenden Kanten in übergestülpten Säumen umgelegt ist. Schmelzgrate, die Orientirung des Steins ermöglichend, scheinen bisher bei der gewöhnlichen Klasse der Meteoriten, den Chondriten, noch nicht beobachtet zu sein. Denn diese wesentlich aus Magnesiasilikaten bestehenden Steine haben eine höhere Schmelzbarkeit und zudem erschwerten die aus der dünnen glanzlosen Rinde hervorragenden ungeschmolzenen Nickeleisenkörner eine freiströmende Bewegung der schmilzenden Oberfläche. Trotzdem lässt der Stein Fig. 1 recht deutlich auf der Brustseite (_a_) und den Flanken (_c_) die vom Scheitel gegen die Peripherie ausstrahlenden, feinen Schmelzgrate erkennen. Auf dem Scheitel selbst erhebt sich die Schmelzmasse zu sehr kleinen Protuberanzen, gleichsam ungewiss nach welcher Seite zu entweichen; auf allen übrigen Teilen der Brustwölbung und mehr noch auf den Flanken (besonders den Bruchflächen α und β) treten die centrifugalen Grate schön und deutlich hervor. Die feinen, doch scharfkantigen Leistchen fliessen gegen die Flanken hin zusammen und erscheinen hier zuweilen wie übergespritzt. Dass die letzte dünnüberrindete, an unserm Steine kupferrot erglänzende Bruchfläche auf der Rückenseite entstehen musste, begreifen wir leicht, wenn wir erwägen, dass der auf die Brust wirkende ungeheure Druck die zur Zertrümmerung an sich geneigte, von Ablösungen durchsetzte Steinmasse zusammenhalten musste, während auf der Rückenseite das Vacuum der Feuerkugel lag. Ähnlich der Bruchfläche 1_b_ liegende Ablösungsflächen (auf welche wir später zurückkommen), bieten mehrere Pultusker Steine dar, z. B. Fig. 10; dieselben haben eine ähnliche Oberflächen-Beschaffenheit wie jene Bruchfläche. Wäre letztere noch längere Zeit der abschmelzenden Wirkung des feurigen Fluges ausgesetzt gewesen, so würde ihr Relief unzweifelhaft gleich demjenigen des übrigen Steins geworden sein. Bei den grösseren Steinen von Pultusk überrascht, abgesehen auch von den jüngeren leicht angeschmolzenen Bruchflächen, oft eine seltsame Verschiedenheit des Reliefs, welches teils mehr ebene oder sanft gewölbte Flächen, teils gerundete oder scharfkantig eingesenkte, zuweilen fingerförmige Eindrücke aufweist, während der ganze Stein von einer gleichmässigen Schmelzrinde bedeckt ist. Derartige Reliefformen sehen wir an den Meteoriten Fig. 1, 3, 5, 10, am ausgezeichnetsten aber bietet sie der grosse, jetzt in der Stockholmer Sammlung befindliche Stein dar, 2900 Gr. schwer, von sphäroidischer Gestalt (grösste Länge 155 Mm., grösste Breite 120, Dicke 85 Mm.). Seine Oberfläche ist teils eben und sanft gewölbt, teils mit rundlich-eckigen Eindrücken versehen, fast wie von Fingerspitzen in einer noch plastischen Masse. Diese zuweilen scharfkantig absetzenden Vertiefungen erklären sich nur durch die zahlreichen unter den verschiedensten Winkeln sich kreuzenden Kluft- und Ablösungsflächen, auf welchen ein Abspringen einzelner Teile statthatte.
 
-1) Von wie geringer Grösse die Mehrsahl der Pultusker Bteine ist. geht aus der Thatsache hervor.
-dass Dr. Krantz auf 1 Kilogr. 212 ganz umrindete Meteoriten zählte.
+Formen wie der geschilderte Stein Fig. 1 und von ähnlicher Grösse finden sich unter den Pultuskern mehrfach. Bei Vergleichung derselben tritt eine auffallende Analogie hervor, welche sich besonders in dem Gegensatze zeigt, zwischen dem mehr zugeschärften Kreissegment und den vertikal die Dicke des Steins durchsetzenden, meist sich nahezu normal treffenden Brüchen.
 
+Der kleine Stein, welchen die Figg. 2_a_ und _b_ in natürlicher Grösse darstellen, kann mit grosser Wahrscheinlichkeit als ein kosmisches Individuum angesehen werden. Der Umriss ist abgerundet dreiseitig, der Scheitel breit und eben, die Brustseite hoch gewölbt und steil in den Flanken abfallend; die Rückenseite ebenflächig. Dass dieser Stein, seine gewölbte Brust vorwärts gerichtet, die höchsten Regionen der Atmosphäre durchzog, ist durch die hier überaus deutlichen Schmelzgrate, welche vom Scheitel radial über die steilen Flanken weg gegen die Kante der Rückenfläche ziehen, augenscheinlich. Es möge hier daran erinnert werden, dass nach dem Meteorsteinfalle von Parnallee bei Madura in Hindostan (28. Febr. 1857) zwei Steine der Gestalt in der Erde steckend gefunden wurden, dass "die am meisten convexe Oberfläche zu unterst lag. Es war dies, wie Hr. Taylor ausdrücklich bemerkt, dem Schwerpunkte entsprechend, gerade die Lage, welche die Meteoriten bei ihrem Durchgange durch die Widerstand leistende Atmosphäre annehmen mussten." (v. Haidinger, Sitz.-Ber. 1861, 21. Febr.)
 
-Körnern. Dennoch gestatten einige der grösseren Steine, indem sie auf das
-Deutlichste Segmente der kosmischen Körper bilden, die ursprüngliche Form
-zu bestimmen, während einige der kleineren Steine von auffallend regelmässi-
-ger Gestalt wahrscheinlich unzertrümmerte planetarische Sphäroide sind.
-Eine der ausgezeichnetsten Formen unter den Pultusker Steinen ist
-diejenige, welche die Figg. lu, 5, c in halber natürlicher Grösse darstellen.
-Dieser Meteorit, dessen Gewicht 870 Gr. beträgt, bildet ein von zwei unge-
-fähr rechtwinklig zu einander stehenden Bruchflächen (a und ß) begrenztes
-Segment eines dickscheibenförmigen Sphäroids. Der sich einem Kreissegmente
-nähernde Rand (7) stellt die ursprüngliche Peripherie des planetarischen
-Körpers dar. Während die Bruchflächen a und $ in vertikalen Schnitten
-die Dicke des abgeplatteten Sphüroids zeigen, schärft sich letzteres längs
-des Kreissegmentes z zu einem mehr oder weniger scharfen Rande zu. Die
-in den Figg. la und 5 dargestellten beiden Seiten unseres Steins besitzen
-eine auffallend verschiedene Oberflächen-Beschaffenheit. lu, die Brust- oder
-Vorderseite ist höher gewölbt und zu sanft abgerundeten Buckeln gestaltet,
-15, die Rücken- oder Hinterseite wird vorzugsweise durch einen in seiner
-allgemeinen Lage ebenen Bruch von eigenthümlich kleinhöckeriger Ober-
-fläche gebildet, welcher eine spätere Entstehung verräth. Während nämlich
-die den ganzen Stein bis auf einige Beschädigungen desselben rings bedeckende
-Schmelzrinde auf der Brustseite und auf den Flanken schwarz, von unge-
-führ gleichmässiger Dicke, etwa "sMm., nur schimmernd oder fast glanzlos
-ist, zeigt die kleinhöckerige Bruchfläche der Rückenseite eine dünnere
-Schmelzrinde von metallartigem, fast kupferrothem Glanz. Die Brustseite
-unseres Meteoriten wird durch das Vorhandensein und die Richtung der
-Schmelzrinden-Grate, oder -Säume in überzeugendster Weise charakterisirt,
-und hierdurch zugleich ein Mittel geboten, die Lage des Steins im telluri-
-schen Theile seiner Flugbahn zu bestimmen. Von Haidinger war der
-erste, welcher aus der Beschaffenheit und Gestalt der Oberfläche von Me-
-teoriten die Lage derselben in ihrer Bahn kennen lehrte. Zwei Steine von
-Stannern (22. Mai 1808) wurden durch die in Folge des Luftwiderstandes um-
-gestülpten Schmelzrinden-Säume in Bezug auf ihre Lage zur Bahn bestimmt;
-bei einem Steine von Gross-Divina (24. Juli 1837) geschah es nach dem Un-
-terschiede der Brust- und Rückenseite (Sitz.-Ber. d. Kais. Ak. d. Wiss. 1860,
-19. April u. Sitz. 1862, Sitz. 22. Mai). Die Steine von Stannern (Eukrit) besitzen
-in Folge ihrer relativ leichteren Schmelzbarkeit eine dicke glänzende Rinde,
-
-
-
-welche von der Brustwölbung gegen die Flanken in hohen, scharf hervor-
-tretenden, verästelten Graten erhoben und längs den die Rückenseite be-
-grenzenden Kanten in übergestülpten Säumen umgelegt ist. Schmelzgrate,
-die Orientirang des Steins ermöglichend, scheinen bisher bei der gewöhn-
-lichen Klasse der Meteoriten, den Chondriten, noch nicht beobachtet zu
-sein. Denn diese wesentlich aus Magnesiasilicaten bestehenden Steine
-haben eine höhere Schmelzbarkeit und zudem erschwerten die aus
-der dünnen glanzlosen Rinde hervorragenden ungeschmolzenen Nickel-
-eisenkörner eine freiströomende Bewegung der schmilzenden Oberfläche.
-Trotzdem lässt der Stein Fig. 1 recht deutlich auf der Brustseite (@) und den
-Flanken (c) die vom Scheitel gegen die Peripherie ausstrahlenden, feinen
-Schmelzgrate erkennen. Auf dem Scheitel selbst erhebt sich die Schmelz-
-masse zu sehr kleinen Protuberanzen, gleichsam ungewiss nach welcher Seite
-zu entweichen; auf allen übrigen Theilen der Brustwölbung und mehr noch
-auf den Flanken (besonders den Bruchflächen « und ß) treten die centri-
-fugalen Grate schön und deutlich hervor. Die feinen, doch scharfkantigen
-Leistchen fliessen gegen die Flanken hin zusammen und erscheinen hier zu-
-weilen wie übergespritzt. Dass die letzte dünnüberrindete, an unserm Steine
-kupferroth erglänzende Bruchfläche auf der Rückenseite entstehen musste,
-begreifen wir leicht, wenn wir erwägen, dass der auf die Brust wirkende
-ungeheure Druck die zur Zertrümmerung an sich geneigte, von Ablösungen
-durchsetzte Steinmasse zusammenhalten musste, während auf der Rücken-
-seite das Vacuum der Feuerkugel lag. Aehnlich der Bruchfläche 15 liegende
-Ablösungsflächen (auf welche wir später zurückkommen), bieten mehrere
-Pultusker Steine dar, z. B. Fig. 10; dieselben haben eine ähnliche Oberflächen-
-Beschaffenheit wie jene Bruchfläche. Wäre letztere noch längere Zeit der
-abschmelzenden Wirkung des feurigen Fluges ausgesetzt gewesen, so würde
-ihr Relief unzweifelhaft gleich demjenigen des übrigen Steins geworden sein.
-Bei den grösseren Steinen von Pultusk überrascht, abgesehen auch von den
-jüngeren leicht angeschmolzenen Bruchflächen, oft eine seltsame Verschieden-
-heit des Reliefs, welches theils mehr ebene oder sanft gewölbte Flächen,
-tbeils gerundete oder scharfkantig eingesenkte, zuweilen fingerförmige Ein-
-drücke aufweist, während der ganze Stein von einer gleichmässigen Schmelz-
-rinde bedeckt ist. Derartige Reliefformen sehen wir an den Meteoriten
-Fig. 1, 83, 5, 10, am ausgezeichnetsten aber bietet sie der grosse, jetzt in
-der Stockholmer Sammlung befindliche Stein dar, 2900 Gr. schwer, von
-
-
-
-
-sphäroidischer Gestalt (grösste Länge 155 Mm., grösste Breite 120, Dicke
-85 Mm.). Seine Oberfläche ist theils eben und sanft gewölbt, theils mit
-rundlich-eckigen Eindrücken versehen, fast wie von Fingerspitzen in einer
-noch plastischen Masse. Diese zuweilen scharfkantig absetzenden Vertie-
-fungen erklären sich nur durch die zahlreichen unter den verschiedensten
-Winkeln sich kreuzenden Kluft- und Ablösungsflächen, auf welchen ein
-Abepringen einzelner Theile statthatte.
-
-Formen wie der geschilderte Stein Fig. 1 und von ähnlicher Grösse
-finden sich unter den Pultuskern mehrfach. Bei Vergleichung derselben
-tritt eine auffallende Analogie hervor, welche sich besonders in dem Gegen-
-satze zeigt, zwischen dem mehr zugeschärften Kreissegment und den vertikal
-die Dicke des Steins durchsetzenden, meist sich nahezu normal treffenden
-Brüchen.
-
-Der kleine Stein, welchen die Figg. ?@ und 5 in natürlicher Grösse
-darstellen, kann mit grosser Wahrscheinlichkeit als ein kosmisches Indivi-
-duum angesehen werden. Der Umriss ist abgerundet dreiseitig, der Scheitel
-breit und eben, die Brustseite hoch gewölbt und steil in den Flanken ab-
-fallend: die Rückenseite ebenflächig. Dass dieser Stein, seine gewölbte Brust
-vorwärts gerichtet, die höchsten Regionen der Atmosphäre durchzog, ist
-durch die hier überaus deutlichen Schmelzgrate, welche vom Scheitel radial
-über die steilen Flanken weg gegen die Kante der Rückenfläche ziehen,
-augenscheinlich. Es möge hier daran erinnert werden, dass nach dem Me-
-teorsteinfalle von Parnallee bei Madura in Hindostan (28. Febr. 1857) zwei
-Steine der Gestalt in der Erde steckend gefunden wurden, dass „die am
-meisten convexe Oberfläche zu unterst lag. Es war dies, wie Hr. Taylor
-ausdrücklich bemerkt, dem Schwerpunkte entsprechend, gerade die Lage,
-welche die Meteoriten bei ihrem Durchgange durch die Widerstand leistende
-Atmosphäre annehmen mussten.“ (v. Haidinger, Sitz.-Ber. 1861, 21. Febr.)
-
-Die Untersuchung einer sehr grossen Zahl von Pultusker Steinen be-
-weist, dass dieser Steinregen nicht der Zertrümmerung Eines kosmischen Kör-
-pers seine Entstehung verdanken kann, dass vielmehr ein Schwarm grösserer
-und kleinerer planetarischer Individuen in den Anziehungskreis der Erde
-gelangte, welche der Mehrzahl nach zertrümmert wurden, doch nicht immer
-in dem Maasse, dass es nicht zuweilen möglich wäre, die kosmische Gestalt
-zu bestimmen, welche eine stark abgeplattet sphäroidale oder dickscheiben-
-förmige war.
-
-
+Die Untersuchung einer sehr grossen Zahl von Pultusker Steinen beweist, dass dieser Steinregen nicht der Zertrümmerung Eines kosmischen Körpers seine Entstehung verdanken kann, dass vielmehr ein Schwarm grösserer und kleinerer planetarischer Individuen in den Anziehungskreis der Erde gelangte, welche der Mehrzahl nach zertrümmert wurden, doch nicht immer in dem Maasse, dass es nicht zuweilen möglich wäre, die kosmische Gestalt zu bestimmen, welche eine stark abgeplattet sphäroidale oder dickscheibenförmige war.
 
 Bevor wir einige der stärker zertrümmerten Formen, Meteoritenfragmente
 und -Splitter, näher kennen lernen, ist noch eine zweifache Färbung der
@@ -256,7 +60,7 @@ unterschied der Schmelzrinde, wie Pultusk, weist auch Aigle auf, dessen
 Steine den polnischen überhaupt sehr ähnlich sind.
 
 Früher war man wohl geneigt, ringsumrindete Meteoriten für komische
-Individuen, für „ganze Steine“ zu halten. Schon v.Haidinger hatsich gegen
+Individuen, für "ganze Steine" zu halten. Schon v.Haidinger hatsich gegen
 diese Meinung erklärt (Sitz.-Ber. d. kais. Ak. d. Wiss. 19. April 1860) und
 Nichts kann überzeugender für ihn sprechen als die Betrachtung des durch
 Figg. 3 und 6 in halber natürlicher Grösse dargestellten, vollkommen um-
@@ -280,7 +84,7 @@ den mit Nickeleisen-Blättern bedeckten Spiegelflächen finden werden. Ueber
 die scharfe Kante dieser Bruchfläche (in Fig. 3a nach unten gerichtet) legt
 sich, den rothbraunen Schmelz der Bruchfläche bedeckend, ein umgebogener
 Saum der schwarzen Rindenmasse hinweg. Die andere Bruchfläche, Fig. 35,
-wird durch zwei unter etwa 125” zusammenstossende Ebenen von höckeriger
+wird durch zwei unter etwa 125" zusammenstossende Ebenen von höckeriger
 Oberfläche gebildet. Der Stein Fig. 3 lässt demnach keinen Zweifel übrig,
 dass das Erglühen und die Oberflächenschmelzung schon vor der Zertrüm-
 merung stattfand und, in diesem speciellen Falle wenigstens, mit geringerer
@@ -349,13 +153,13 @@ tarisch bewegten, mit seiner Brust gegen den stets wachsenden Atmosphären-
 druck ankämpfenden Aerolithen gelangten, eine grössere Geschwindigkeit
 als der Hauptkörper annehmen und auf dessen Hinterseite, in der Feuerkugel
 
-“  erglähend, sich wieder mit ihm vereinigen. Auch der Stein Fig. 8 bietet
+"  erglähend, sich wieder mit ihm vereinigen. Auch der Stein Fig. 8 bietet
 auf seiner oonkav verbrochenen Rückseite einige angeschmolzene Meteoriten-
 
 
 
 Körner dar. Noch an einem dritten, grösseren Steine von Pultusk in der
-Krantz’schen Sammlung (in den drei Dimensionen messend 85, 60, 45 Mm.),
+Krantz'schen Sammlung (in den drei Dimensionen messend 85, 60, 45 Mm.),
 dessen Schmelzrinde ' Mm. erreicht, haftet auf der Rückenseite ein durch
 Schmelzmasse verkittetes Conglomerat kleiner Meteorkörner.
 
@@ -407,7 +211,7 @@ sind. Ein ausgezeichnetes Beispiel einer solchen Pseudobreccie bietet der
 in Fig. 9 (in natürlicher Grösse) abgebildete Stein; der obere Theil des in
 der Figur sichtbaren Bruches ist von einem Eisenspiegel bedeckt. Das merk-
 würdigste Beispiel des Nebeneinandervorkommens von lichter und dunkler
-Substanz auf derselben Fläche bietet bekanntlich Siena dar (16. Juli’1794;
+Substanz auf derselben Fläche bietet bekanntlich Siena dar (16. Juli'1794;
 s. G. Rose Beschr. u. Eintheil. d. Met. S. 84); hier möchte es indess eine
 wahre Breccie sein.
 
@@ -449,10 +253,10 @@ auch unter Umständen, wo wir keine Verrutschung, sondern nur einen Druck
 zur Erklärung annehmen können. Wie nun auch die entsprechende Erschei-
 nung, spiegelnde und gefurchte Ablösungen, sich bei Meteoriten erklären mag
 — ob durch blossen Druck oder durch Verrutschung: an Bewegung fehlt es
-in jenen Räumen ja nicht —: in keinemFalle können wir v. Reichenbach’s
-seltsaher Ansicht zustimmen, „dass die Lamellen feiner Eisenschüppchen
+in jenen Räumen ja nicht —: in keinemFalle können wir v. Reichenbach's
+seltsaher Ansicht zustimmen, "dass die Lamellen feiner Eisenschüppchen
 [für welche bisher Schönenberg in München das ausgezeichnetste Beispiel
-war] eine Folge der Schichtung der ungleichförmigen Substanzen sei“.
+war] eine Folge der Schichtung der ungleichförmigen Substanzen sei".
 
 Die vollkommenste Analogie mit Pultusk bietet Aigle dar, sowohl in Hin-
 sicht der — jedenfalls mehrere Tausend betragenden — Zahl der Steine, ihrer
@@ -464,7 +268,7 @@ denen Habitus in Form und Rinde zeigen.
 
 Die Chondrite, die gewöhnlichste Art der Meteoriten, bieten der mine-
 ralogischen Untersuchung sehr grosse Schwierigkeiten dar, so dass es selbst
-dem ausdauernden Scharfsinn G. Rose’s nicht gelang, die mineralogische
+dem ausdauernden Scharfsinn G. Rose's nicht gelang, die mineralogische
 Beschaffenheit derselben vollkommen zu ergründen. Bei der Erforschung
 tellurischer Gesteine (Laven) bieten die in Drusen ausgebildeten Mineralion,
 insofern wir sie auch in der Grundmasse voraussetzen können, ein wesent-
@@ -498,7 +302,7 @@ Concord (1. Mai 1860). Pultusk besitzt eine feinkörnige bis dichte Grund-
 masse, welche ein geringerer Grad krystallinischer Ausbildung von vielen
 andern Chondriten unterscheidet, namentlich im Vergleiche zu den höchst
 krystallinischen Steinen von Erxleben (15. Apr. 1812), Klein Wenden (16. Sept.
-1843) und Dolores Hidalgo Mexico (in der Krantz’schen Sammlung). —
+1843) und Dolores Hidalgo Mexico (in der Krantz'schen Sammlung). —
 Wie in Bezug auf Gestalt und Rinde, so tritt auch in Hinsicht der Gesteins-
 beschaffenheit zwischen Pultusk und Gütersloh eine grosse Aehnlichkeit her-
 vor; nur besitzt der westphälische Stein zahlreichere Kugeln als der polnische.
@@ -526,7 +330,7 @@ leicht aus dem Stein abzuheben. Die Körner zeigen angeschliffen fast
 
 
 silberweissen Glanz und lassen, wenn mit verdünnter Salpetersäure geätzt, Aetz-
-linien (von Zwillingslamellen herrührend) aber keine Widmanstädten’sche
+linien (von Zwillingslamellen herrührend) aber keine Widmanstädten'sche
 Figuren wahrnehmen. Auf der geschliffenen Fläche des Korns bemerkte
 ich zuweilen Einmengungen von tombakbraunem Magnetkies, welche bei
 Behandlung mit verdünnter Chlorwasserstoffsäure reichlich Schwefelwasser-
@@ -601,9 +405,9 @@ berechnet]. Hexaödrische, etwa als Eisenkies zu deutende Formen habe ich
 bei Pultusk niemals wahrgenommen. Speisgelbe Körnchen, welche man zu-
 weilen au sehen glaubt, sind wohl Nichts als Nickeleisen, dessen wechselnden
 Farbenschein schon Berzelius (Ueber Meteorsteine, Pogg. Ann. Bd.XAXXIU
-1884) erwähnt 8.8: „von den glänzenden Punkten des Nickeleisens im Steine
+1884) erwähnt 8.8: "von den glänzenden Punkten des Nickeleisens im Steine
 von Blansko erscheinen einige röthlich, sind indess nichts Anderes als an-
-gelaufenen Nickeleisen.“
+gelaufenen Nickeleisen."
 
 
 In den Steinen von Pultusk finden sich die für die Chondrite ckarak-
@@ -674,7 +478,7 @@ Mg, Sis OÖ, zusammengesetzten Silicate der Magnesia, welchem G. Rose
 den Namen Shepardit beigelegt hat. Eine Stütze für die angegebene Deu-
 tung jener krystallinischen Theile ergibt sich aus der chemischen Constitu-
 tion der Silicate unseres Steins, indem sich dieselbe durch ein Gemenge
-von Olivin und Shepardit annähernd wiedergeben lässt’). Es ist mir nicht
+von Olivin und Shepardit annähernd wiedergeben lässt'). Es ist mir nicht
 
 ) Dasselbe lissse sich allerdings erreichen durch Berechnung einee Gemenges von Olivin und En-
 statit (MgO, BIO, oder Mg Si O, == Kieselsäure 59,71, Magnsein 40,39). Doch ist die Anwesenheit des
@@ -716,9 +520,9 @@ und Salpeter geschmolzen werden. Auf diese Weise wurden in der Lösung
 tersuchten Substanz zu geben scheint. Rammelsberg, dem wir gleichfalls eine Analyse des vorwal-
 tenden Gemengtheils von Bishoprville verdanken, gewann die Ucberzeugung, dass er ein Gemenge analysirt
 babe. Die gleiche Annahme ist gewiss auch in Besug auf die Analysen von Smith geststtet; und os
-möchte kein Grund vorliegen von der Ansicht G. Rose’s abzugeben, »>dass in dem Chladoit (Stein von
+möchte kein Grund vorliegen von der Ansicht G. Rose's abzugeben, »>dass in dem Chladoit (Stein von
 Bishopville) ein eigenthümliches Mineral wie der Shepardit vorkomme und neben ihm noch ein anderes
-Thonerde haltiges Minerale. Auf Kenngott’s wiederholte Behauptung (Uebers. Min.-Forssh. 1863-68),
+Thonerde haltiges Minerale. Auf Kenngott's wiederholte Behauptung (Uebers. Min.-Forssh. 1863-68),
 dass die weissen Krystallkörner von Bishoprille, Rose's Shepardit, Enstatit seien, ist zu entgegusn, dass
 die mineralogischen Eigenschaften jener Körner durchaus nicht diejenigen des Enstatits sind. In den
 Mestsoriten ist Enstatit überhaupt noch niemals und Augit nicht in der grossen Clamse der Uhondriten
@@ -745,7 +549,7 @@ nige des krystallinischen Steins, so kommt dem letztern, nachdem man die
 schwarze Hülle entfernt, ein höheres Gewicht zu, nämlich = 3,725 (15'° C.).
 Noch höher stellt sich das Gewicht wenn der rindenlose Stein möglichst
 fein gepulvert wird — 3,782 (bei 22°C). Das Gewicht von Pultusk ist dem-
-nach einer der höhern unter den Chondriten und reiht sich denen von’Seres
+nach einer der höhern unter den Chondriten und reiht sich denen von'Seres
 (Macedonien) 3,71, Lixna 3,66 (Rumler):; Blansko 3,70; Klein Wenden 3,7006;
 Oesel 3,668 und anderen an. — Da es, wie bereits oben bemerkt, unmöglich war,
 durch Ausziehen mit dem Magneten die magnetischen Theile auch nur an-
@@ -778,7 +582,7 @@ Silicste 86,09 » » >» mm 3.286.
 Das letztere Gewicht entsprieht einem Gemenge von Shepardit (nach
 Shepard = 3,116, nach Sartorius = 3,039) und Eisen-Olivin (desjenigen
 von Sisserek mit 17'/: pUt. Eisenoxydul nach Hermann = 3,43). Vergleicht
-man in Rammelsberg’s Mineralchemie die specifischen Gewichte der Me-
+man in Rammelsberg's Mineralchemie die specifischen Gewichte der Me-
 teorateine mit dem angegebenen procentischen Gehalt an Nickeleisen, so
 gewinnt man leicht die Ueberzeugung, dass für viele Steine Gewicht und
 Eisengehalt nicht in Uebereinstimmung sind, und dass (da nothwendiger
@@ -882,7 +686,7 @@ Silicate Anhaltspunkte zu erlangen. In Bezug auf die irdischen Gesteine
 bat man schon seit einiger Zeit diesen wenig fördernden Weg verlassen.
 Wie wenig derselbe zum Ziele, der Bestimmung der konstituirenden Mine-
 ralien, führte, erkennt man durch Vergleichung der neueren mikroskopischen
-Forschung mit den auf die „gesonderte Analyse“ gegründeten Folgerungen.
+Forschung mit den auf die "gesonderte Analyse" gegründeten Folgerungen.
 In Hinsicht der Meteoriten hat man an dem Werth dieser Behandlung mit
 Chlorwasserstoffsäure und gesonderten Analyse der löslichen und der unlös-
 lichen Theile noch länger festgehalten, ohne indess auf diesem Wege zu
@@ -898,7 +702,7 @@ habe ich es nicht unterlassen wollen das relative Verhältniss des löslichen
 
 1) Hr. Dr. Bettondorf hatte die Güte den Pultusker Meteoriten such im Speotral-Apparat su
 untersuchen : »0,02 Gr. fein gepulverte Substanz wurden mit reiner Flusssäure behandelt und das
-reeultirende Pulver vor einem kleinen Bunsen’schen Spektrometer analysirt. Die Natriumlinie trat sehr
+reeultirende Pulver vor einem kleinen Bunsen'schen Spektrometer analysirt. Die Natriumlinie trat sehr
 bell auf und war nach 5 Minuten langem Glühen der Perie noch sichtber. Von Zeit zu Zeit blitgte
 Calcium # auf, Calcium « war nicht zu seben. Von Kalium-Linien nicht eine Bpur.«
 
@@ -951,7 +755,7 @@ derjenigen der normalen Pultusker Steine glänzender, schaumiger ist, durch
 vorragende Eisenkörner nicht warzig erscheint, demgemäss einen vollkom-
 meneren Schmelzfluss erreichte, der sich in sehr deutlichen Schmelzrippen
 offenbart. Das specifische Gewicht des ganz umrindeten planetarischen
-Körpers = 3,236 (bei 17’° C.); kleiner Bruchstücke von Schmelzrinde be-
+Körpers = 3,236 (bei 17'° C.); kleiner Bruchstücke von Schmelzrinde be-
 freit = 3,263 (bei 20°C.). Letzteres Gewicht stimmt also beinahe ganz über-
 ein mit jenem, welches wir oben für die Silicate des normalen Pultusk nach
 Abzug von Nickeleisen und Magnetkies berechneten (3,286).
@@ -968,15 +772,15 @@ von vielen feinen Schmelzlinien und -adern, welche deutlich von der Rinde aus-
 laufen. Nickeleisen fehlt nicht ganz, in vereinzelten kleinen runden Körnchen,
 namentlich auf der geschliffenen Fläche zu erkennen. Sehr selten finden
 sich äusserst kleine, glänzende, gelbe krystallinische Täfelchen, welche mög-
-licher Weise dasselbe sind wie die kleinen, „strohgelben tafelartigen Kry-
-stalle“ im Juvinas. Der abnorme Pultusk enthält keine Kugeln, weder
+licher Weise dasselbe sind wie die kleinen, "strohgelben tafelartigen Kry-
+stalle" im Juvinas. Der abnorme Pultusk enthält keine Kugeln, weder
 dunkle noch lichte, sodass die Bezeichnung Chondrit für denselben nicht
 im engeren Sinne zutrifft; die meiste Aehnlichkeit besteht mit Chassieny
 (Langres). Doch zeigt letzterer eine mehr grünlichgelbe, ins Graue neigende
 Farbe, deutlicheres Korn, höberes Gewicht und demgemäss eine wesentlich
 verschiedene Zusammensetzung. Ohne Rücksicht auf alle übrigen Pultusker
 Steine und ohne Kenntnisse der chemischen Zusammensetzung unseres abnor-
-men Steins würde man denselben gewiss zur Klasse des Chassignit’s stellen,
+men Steins würde man denselben gewiss zur Klasse des Chassignit's stellen,
 welche nur jenen einzigen merkwürdigen Stein enthält. Die Analyse weist
 indess nach, dass der ungewöhnliche Pultusk in seiner Mischung nicht we-
 sentlich verschieden ist von den Silicaten der übrigen Pultusker Steine nach
@@ -1071,7 +875,7 @@ Die zweite Combination, 38 Mol. Olivin + 1 Mol. Shepardit, hat sogleich
 den Vortheil, dass sie /« der Magnesia- (resp. der Eisenoxydul-)Menge dem
 bekannten Mineral und nur '« derselben dem weniger bekannten Shepardit
 zuweist. Erinnern wir uns ferner, dass nach den genauesten mineralogischen
-Untersuchungen und Folgerungen G. Rose’s der Chassignit wesentlich nur -
+Untersuchungen und Folgerungen G. Rose's der Chassignit wesentlich nur -
 aus Olivin besteht, der Chladnit (Bishopville) vorzugsweise aus Shepardit,
 der Shalkit ein Gemenge von 1 Mol. Olivin und 2 Mol. Shepardit darstellt,
 so bat die Annahme derselben Mineralien nur mit anderm Verhältnisie
