@@ -79,155 +79,75 @@ In der lichtgrauen Grundmasse, welche sich einer eingehenderen mineralogischen D
 
 *) Dasselbe liesse sich allerdings erreichen durch Berechnung eines Gemenges von Olivin und Enstatit (MgO, SiO₂ oder MgSiO₃ = Kieselsäure 59,71, Magnesia 40,29). Doch ist die Anwesenheit des Enstatits in Meteoriten bisher noch nicht bewiesen. Was die weissen Krystalle in Bishopville betrifft, so weichen die vorliegenden Analysen zwar sehr von einander ab, doch scheint kein Grund vorhanden zu sein, den neueren Analysen von J. L. Smith mehr Rechnung zu tragen als den früheren, nahe übereinstimmenden von Sartorius und Shepard, welche letzterem das reichlichste Material zum Aussuchen reiner Krystallkörner zur Verfügung stand. Auch ist zu erwägen, dass durch unvollkommene Sonderung der sur Analyse bestimmten weissen Körner von der übrigen Steinmasse ein in Bezug auf den Kieselsäure-Gehalt zu geringes Resultat erhalten werden musste; daher der hohe in den Analysen von Sartorius (67,1 pZt.) und Shepard (70,4 pZt.) angezeigte Kieselsäure-Gehalt eine Gewähr für die Reinheit der untersuchten Substanz zu geben scheint. Rammelsberg, dem wir gleichfalls eine Analyse des vorwaltenden Gemengteils von Bishopville verdanken, gewann die Überzeugung, dass er ein Gemenge analysirt habe. Die gleiche Annahme ist gewiss auch in Bezug auf die Analysen von Smith gestattet; und es möchte kein Grund vorliegen von der Ansicht G. Roses abzugehen, "dass in dem Chladnit (Stein von Bishopville) ein eigentümliches Mineral wie der Shepardit vorkomme und neben ihm noch ein anderes Tonerde haltiges Minerale." Auf Kenngotts wiederholte Behauptung (Übers. Min.-Forsch. 1862-65), dass die weissen Krystallkörner von Bishopville, Roses Shepardit, Enstatit seien, ist zu entgegnen, dass die mineralogischen Eigenschaften jener Körner durchaus nicht diejenigen des Enstatits sind. In den Meteoriten ist Enstatit überhaupt noch niemals und Augit nicht in der grossen Klasse der Chondriten beobachtet worden, eine Tatsache, deren Bedeutung nicht berührt wird durch die Mitteilungen Daubrées, dass als Schmelzprodukte sowohl der Chondrite als des Steins von Bishopville Olivin und Enstatit erscheinen (Compt. rend. Séance 29. Janv. 1866). Bei diesen interessanten Versuchen wurde der Olivin (dieses häufigste unter allen aus Schmelzfluss sich bildenden Mineralien) krystallographisch bestimmt, während in Betreff der prismes à section rectangulaire des Enstatits weder die Form noch die quantitative Mischung ermittelt werden konnte.
 
-Chromeisenerz ist in sehr kleinen schwarzen, unmagnetischen Körnchen
-nur in geringer Menge vorhanden. Es bleibt nach Behandlung des Meteori-
-tenpulvers unzersetzt zurück = 0,34 pCt. Bei dem Schmelzen des Steinpul-
-vers mit kohlensaurem Natron wird das Chromeisen nicht zersetzt, es bleibt
-bei der Kieselsäure, derselben eine schwachbräunliche Farbe verleihend.
-Um die Kieselsäure rein zu erhalten, muss mit einem Gemenge von Soda
-und Salpeter geschmolzen werden. Auf diese Weise wurden in der Lösung
-0,24 pCt. Chromoxyd, berechnet auf den nicht magnetischen Antheil, bestimmt.
+Chromeisenerz ist in sehr kleinen schwarzen, unmagnetischen Körnchen nur in geringer Menge vorhanden. Es bleibt nach Behandlung des Meteoritenpulvers unzersetzt zurück = 0,34 pZt. Bei dem Schmelzen des Steinpulvers mit kohlensaurem Natron wird das Chromeisen nicht zersetzt, es bleibt bei der Kieselsäure, derselben eine schwachbräunliche Farbe verleihend. Um die Kieselsäure rein zu erhalten, muss mit einem Gemenge von Soda und Salpeter geschmolzen werden. Auf diese Weise wurden in der Lösung 0,24 pZt. Chromoxyd, berechnet auf den nicht magnetischen Anteil, bestimmt.
 
-Das specifische Gewicht von sechs kleinen, ganz umrindeten Steinen
-ergab sich wie folgt:
-absolutes Gew. spec. Gew. Temp.
-10978 8587: 20°C.
-2) 6,78 04 20°
-3) 9,663 3,667 151°
-) 8.4695 3,089 151°
-.» 1,7345 3.671 181,°
-6) 4.5445 3899 15,0
-Da das Gewicht der geschmolzenen Rinde ein geringeres ist als dasje-
-nige des krystallinischen Steins, so kommt dem letztern, nachdem man die
-schwarze Hülle entfernt, ein höheres Gewicht zu, nämlich = 3,725 (15'° C.).
-Noch höher stellt sich das Gewicht wenn der rindenlose Stein möglichst
-fein gepulvert wird --- 3,782 (bei 22°C). Das Gewicht von Pultusk ist dem-
-nach einer der höhern unter den Chondriten und reiht sich denen von'Seres
-(Macedonien) 3,71, Lixna 3,66 (Rumler):; Blansko 3,70; Klein Wenden 3,7006;
-Oesel 3,668 und anderen an. --- Da es, wie bereits oben bemerkt, unmöglich war,
-durch Ausziehen mit dem Magneten die magnetischen Theile auch nur an-
-nähernd zu bestimmen, so musste zur Ermittlung der procentischen Menge
-des Nickeleisens ein anderer Weg eingeschlagen werden. Bei der grossen
-Verschiedenheit der specifischen Gewichte des Nickeleisens und der nicht
-magnetischen Theile (welche fast vollkommen rein von Eisen ausgesucht
-werden konnten), musste hierauf, als einer hinlänglich genauen Grundlage,
-. die Rechnung geführt werden können. Die gegebenen Bedingungen der
-Rechnung sind nun folgende: Die direkt bestimmte Menge des Schwefels
-= 1,52 pCt. ergibt den Gehalt an Magnetkies --- 3,85 pCt., dessen specifi-
-sches Gewicht angenommen wird --- 4,65. --- Das specifische Gewicht des
-ganzen Meteoriten als Pulver gewogen = 3,782; das Gewicht der nicht
-magnetischen Theile (d. h. der Silicate und des Magnetkieses, welcher in
-den metoorischen Vorkommnissen bekanntlich nicht magnetisch ist) = 3,344.
-Das specifische Gewicht des Nickeleisens wird angenommen = 7,7'). Die
-äusserst geringe Menge des Chromeisens können wir hier unberücksichtigt
-lassen. So ergibt sich das Resultat, dass unser Meteorit enthält:
+Das spezifische Gewicht von sechs kleinen, ganz umrindeten Steinen ergab sich wie folgt:
 
-3) Das Gewicht der sur Analyse ausgesuchten Nickeleisen-Körner betrug allerdings nar 7,017 (s. oben),
-Da aber diessiben nicht vollkommen rein, sondern mit einer geringen Menge von Silicaten und Magnet-
-kiös verunteinigt waren, so wurde das Gewicht 7,7 (welches dem Gewichte des Eisens von Bohumilite,
-ven Breunsa, Seellsgen, Lenarto eto. entspricht) in die obige Rechnung eingeführt.
+| ~ | absolutes Gew. | spez. Gew. | Temp.   |
+|---|----------------|------------|---------|
+| 1 | 10,273         | 3,537      | 20° C.  |
+| 2 | 6,739          | 3,624      | 20°     |
+| 3 | 9,653          | 3,657      | 15 1/2° |
+| 4 | 8,4695         | 3,669      | 15 1/2° |
+| 5 | 1,7345         | 3,671      | 15 1/2° |
+| 6 | 4,5445         | 3,699      | 15 1/2° |
 
-Nickeleisen 10,06 pCt. Spoc.-Gew. = 7,7
-Magnetkies 3,86 >» » » =465
-Silicste 86,09 » » >» mm 3.286.
+Da das Gewicht der geschmolzenen Rinde ein geringeres ist als dasjenige des krystallinischen Steins, so kommt dem letztern, nachdem man die schwarze Hülle entfernt, ein höheres Gewicht zu, nämlich = 3,725 (15 1/2° C.). Noch höher stellt sich das Gewicht wenn der rindenlose Stein möglichst fein gepulvert wird = 3,782 (bei 22° C.). Das Gewicht von Pultusk ist demnach einer der höhern unter den Chondriten und reiht sich denen von Seres (Makedonien) 3,71, Lixna 3,66 (Rumler); Blansko 3,70; Klein Wenden 3,7006; Oesel 3,668 und anderen an. --- Da es, wie bereits oben bemerkt, unmöglich war, durch Ausziehen mit dem Magneten die magnetischen Teile auch nur annähernd zu bestimmen, so musste zur Ermittlung der prozentischen Menge des Nickeleisens ein anderer Weg eingeschlagen werden. Bei der grossen Verschiedenheit der spezifischen Gewichte des Nickeleisens und der nicht magnetischen Teile (welche fast vollkommen rein von Eisen ausgesucht werden konnten), musste hierauf, als einer hinlänglich genauen Grundlage, die Rechnung geführt werden können. Die gegebenen Bedingungen der Rechnung sind nun folgende: Die direkt bestimmte Menge des Schwefels = 1,52 pZt. ergibt den Gehalt an Magnetkies = 3,85 pZt., dessen spezifisches Gewicht angenommen wird = 4,65. --- Das spezifische Gewicht des ganzen Meteoriten als Pulver gewogen = 3,782; das Gewicht der nicht magnetischen Teile (d. h. der Silikate und des Magnetkieses, welcher in den meteorischen Vorkommnissen bekanntlich nicht magnetisch ist) = 3,344. Das spezifische Gewicht des Nickeleisens wird angenommen = 7,7.* Die äusserst geringe Menge des Chromeisens können wir hier unberücksichtigt lassen. So ergibt sich das Resultat, dass unser Meteorit enthält:
 
-Das letztere Gewicht entsprieht einem Gemenge von Shepardit (nach
-Shepard = 3,116, nach Sartorius = 3,039) und Eisen-Olivin (desjenigen
-von Sisserek mit 17'/: pUt. Eisenoxydul nach Hermann = 3,43). Vergleicht
-man in Rammelsberg's Mineralchemie die specifischen Gewichte der Me-
-teorateine mit dem angegebenen procentischen Gehalt an Nickeleisen, so
-gewinnt man leicht die Ueberzeugung, dass für viele Steine Gewicht und
-Eisengehalt nicht in Uebereinstimmung sind, und dass (da nothwendiger
-Weise entweder das eine oder das andere irrig bestimmt ist) für viele die
-Menge des Nickeleisens zu hoch angegeben ist. Für den Stein von Lixna
-z. B., welcher nach der Analyse von Grotthuss 22,0 pCt. Nickeleisen,
-9,5 Schwefeleisen, 68,5 Silicate enthält, dessen specifisches Gewicht 3,76 be-
-trägt, berechnet sich das specifische Gewicht der Silicate 2,37 offenbar viel
-zu niedrig. Für den Stein von Klein Wenden (22,9 pCt. Nickeleisen, 5,6
-Schwefeleisen, 70,4 Silicate; specifisches Gewicht 3,70, Rammelsberg,
-Mineralchemie) ergibt die Rechnung das specifische Gewicht der Silieate
-= 2,41 ein Resultat, welches gleichfalls der Wahrheit kaum entsprechen
-kann. Bereita Berzelius gibt an, dass die relative Menge des Nickeleisens
-in den verschiedenen Theilen desselben Meteorsteins nicht ganz constant sei.
-Dass der Eisengehalt für Steine desselben Falls nicht constant, und überhaupt
-das procentische Verhältniss von Eisen und Silicaten kein charakteristischee
-Merkmal sei, lehrt die Vergleichung geschliffener Flächen mehrerer Pultusker
-Steine, und gleicher Weise die oben angegebenen verschiedenen Gewichte
-ganzer Meteoriten. Dasselbe ergab sich aus einer direkten Nickelbestimmung.
-In 4,044 Gr. des Meteoritenpulvers wurden gefunden 0,050 Nickeloxyd ent-
-sprechend 0,039 Nickel. Bei dieser Analyse konnte nicht eine Spur von
-Kupfer oder Zinn nachgewiesen werden. Sehen wir nun (der sogleich fol-
-genden Analyse entsprechend) das Nickeleisen als eine Verbindung von 1 At.
-Nickel und 14 At. Eisen an, so ergibt sich die Menge desselben = 0,559 Gr.
-oder --- 13,8 pCt. des Meteoriten.
+*) Das Gewicht der zur Analyse ausgesuchten Nickeleisen-Körner betrug allerdings nur 7,017 (s. oben), Da aber dieselben nicht vollkommen rein, sondern mit einer geringen Menge von Silikaten und Magnetkies verunreinigt waren, so wurde das Gewicht 7,7 (welches dem Gewichte des Eisens von Bohumilitz, von Braunau, Seeläsgen, Lenarto etc. entspricht) in die obige Rechnung eingeführt.
 
-Die genaue Analyse eines Steins wie Pultusk ist eine schwierige, kaum voll-
-kommen zu lösende Aufgabe; man erwäge die schwierige Sonderung der mag-
-netischen und nicht magnetischen Theile, die Vielartigkeit des Gemenges, in
-welchem z. B. das Eisen vorhanden ist: als Nickeleisen, als Magnetkies, als
+Nickeleisen 10,06 pZt. Spez.-Gew. = 7,7  
+Magnetkies 3,85 pZt. Spez.-Gew. = 4,65  
+Silikate 86,09 pZt. Spez.-Gew. = 3,286.
 
+Das letztere Gewicht entspricht einem Gemenge von Shepardit (nach Shepard = 3,116, nach Sartorius = 3,039) und Eisen-Olivin (desjenigen von Sissersk mit 17 1/2 pZt. Eisenoxydul nach Hermann = 3,43). Vergleicht man in Rammelsbergs Mineralchemie die spezifischen Gewichte der Meteorsteine mit dem angegebenen prozentischen Gehalt an Nickeleisen, so gewinnt man leicht die Überzeugung, dass für viele Steine Gewicht und Eisengehalt nicht in Übereinstimmung sind, und dass (da notwendiger Weise entweder das eine oder das andere irrig bestimmt ist) für viele die Menge des Nickeleisens zu hoch angegeben ist. Für den Stein von Lixna z. B., welcher nach der Analyse von Grotthuss 22,0 pZt. Nickeleisen, 9,5 Schwefeleisen, 68,5 Silikate enthält, dessen spezifisches Gewicht 3,76 beträgt, berechnet sich das spezifische Gewicht der Silikate 2,37 offenbar viel zu niedrig. Für den Stein von Klein Wenden (22,9 pZt. Nickeleisen, 5,6 Schwefeleisen, 70,4 Silikate; spezifisches Gewicht 3,70, Rammelsberg, Mineralchemie) ergibt die Rechnung das spezifische Gewicht der Silikate = 2,41 ein Resultat, welches gleichfalls der Wahrheit kaum entsprechen kann. Bereits Berzelius gibt an, dass die relative Menge des Nickeleisens in den verschiedenen Teilen desselben Meteorsteins nicht ganz konstant sei. Dass der Eisengehalt für Steine desselben Falls nicht konstant, und überhaupt das prozentische Verhältniss von Eisen und Silikaten kein charakteristisches Merkmal sei, lehrt die Vergleichung geschliffener Flächen mehrerer Pultusker Steine, und gleicher Weise die oben angegebenen verschiedenen Gewichte ganzer Meteoriten. Dasselbe ergab sich aus einer direkten Nickelbestimmung. In 4,044 Gr. des Meteoritenpulvers wurden gefunden 0,050 Nickeloxyd entsprechend 0,039 Nickel. Bei dieser Analyse konnte nicht eine Spur von Kupfer oder Zinn nachgewiesen werden. Sehen wir nun (der sogleich folgenden Analyse entsprechend) das Nickeleisen als eine Verbindung von 1 At. Nickel und 14 At. Eisen an, so ergibt sich die Menge desselben = 0,559 Gr. oder = 13,8 pZt. des Meteoriten.
 
-Chromeisen, ala Oxydul ın den Magnesiasilicaten ; ausserdem hat sich selbst in
-den frischesten Stücken durch die ganze Masse hindurch ein sehr kleiner Theil
-des Nickeleisens bereits oxydirt, wie der braungefleckte Bruch erweist. ---
-. Die Untersuchung erheischte namentlich folgende Analysen: des Nickeleisens,
-des unmagnetischen Theils, bei welchem Chromeisen, Magnetkies verbleiben,
-ferner eine gesonderte Behandlung des löslichen und unlöslichen Antheils.
-Zur Analyse des Nickeleisens wurden einige grössere (zusammen
-0,881 Gr. wiegende) Körner ausgesucht (Gew. 7,017 s. oben):
-Schwefel 0,20
-Pbosphor') Spur
-Eisen 86.54
-Nickel 6,4
-Magnesia 1,61
-Unlösl. Theile 8,40
-98,49
-Nicht eine Spur von Kupfer oder Zinn. Der Verlust besteht hauptsächlich
-in gelöster Kieselsäure des Magnesiasilicate. 0,20 Schwefel entsprechen
-0,51 pCt. Magnetkies (oder 0,55 Troilit). Redueirt man nach Abzug von
-Schwefeleisen, Magnesia etc. auf 100, so ergibt als wesentliche Mischung
-des Nickeleisens: Eisen 93,07, Nickel 6,93. Die Formel Fe,Ni würde ver-
-langen Eisen 93,04, Nickel 6,96.
-Die unmagnetischen Theile besitzen folgende Zusammensetzung:
-Chromeisen 0.54
-Schwefel 2.14
-Magmetkies | Eisen 3.29
-Kieseolsäure 46,17
-y Tbonerde 1.20
-Magnesia 2.58
-Kalkorde 01
-Eisenoxydul 15.25
-. Manganoxydul 0,54
-Natron 1,46 _
-100,38,
-Keine Spur von Kali konnte ich bei der Flusssäure-Analyse durch Platin-
-1) Dr. Bettendorf wiss eine äusserst geringe Spur von Phosphor nach, indem er 0,5 Gr. des
-Nickeleisens in Hönigswasser löste, abdampfte, mit Schwefelsäure versetste, wieder eindampfte, um Salz-
-sikıre und Salpetersäure zu verjagen Nach Abscheidung einer geringen Menge Kieselsäure wurde mo-
-iybäänsnures Ammoniak zugesetzt; es entstand ein äusserst geringer, unwägbarer Niederschlag, indem sich
-Suglsich die Lösung stärker gelb färbte. In jenem Niederschlag von phosphor-molybdänsaurem Ammoniak
-beträgt dar Gebalt an Phosphorssure zur 8 plt.
+Die genaue Analyse eines Steins wie Pultusk ist eine schwierige, kaum vollkommen zu lösende Aufgabe; man erwäge die schwierige Sonderung der magnetischen und nicht magnetischen Teile, die Vielartigkeit des Gemenges, in welchem z. B. das Eisen vorhanden ist: als Nickeleisen, als Magnetkies, als Chromeisen, ala Oxydul in den Magnesiasilikaten; ausserdem hat sich selbst in den frischesten Stücken durch die ganze Masse hindurch ein sehr kleiner Teil des Nickeleisens bereits oxydirt, wie der braungefleckte Bruch erweist. --- Die Untersuchung erheischte namentlich folgende Analysen: des Nickeleisens, des unmagnetischen Teils, bei welchem Chromeisen, Magnetkies verbleiben, ferner eine gesonderte Behandlung des löslichen und unlöslichen Anteils.
 
+Zur Analyse des Nickeleisens wurden einige grössere (zusammen 0,881 Gr. wiegende) Körner ausgesucht (Gew. 7,017 s. oben):
 
+|               |       |
+|---------------|-------|
+| Schwefel      | 0,20  |
+| Phosphor*     | Spur  |
+| Eisen         | 86,84 |
+| Nickel        | 6,44  |
+| Magnesia      | 1,61  |
+| Unlösl. Teile | 3,40  |
+| ~             | 98,49 |
 
-cblorid nachweisen'),. Nach Abzug von Chromeisen und Magnetkies die
-bleibenden Silicattheile auf 100 reducirt:
+Nicht eine Spur von Kupfer oder Zinn. Der Verlust besteht hauptsächlich in gelöster Kieselsäure des Magnesiasilikats. 0,20 Schwefel entsprechen 0,51 pZt. Magnetkies (oder 0,55 Troilit). Reduzirt man nach Abzug von Schwefeleisen, Magnesia etc. auf 100, so ergibt als wesentliche Mischung des Nickeleisens: Eisen 93,07, Nickel 6,93. Die Formel Fe₁₄Ni würde verlangen Eisen 93,04, Nickel 6,96.
 
-Kisselslure 48.88 Ox. = 26,07
+Die unmagnetischen Teile besitzen folgende Zusammensetzung:
 
-Thonerde 127 0,59
+|                       |        |
+|-----------------------|--------|
+| Chromeisen            | 0,34   |
+| Schwefel (Magnetkies) | 2,14   |
+| Eisen (Magnetkies)    | 3,29   |
+| Kieselsäure           | 46,17  |
+| Tonerde               | 1,20   |
+| Magnesia              | 29,53  |
+| Kalkerde              | 0,31   |
+| Eisenoxydul           | 15,25  |
+| Manganoxydul          | 0,54   |
+| Natron                | 1,46   |
+| ~                     | 100,23.|
 
-Magnesia 31,26 12,50
+Keine Spur von Kali konnte ich bei der Flusssäure-Analyse durch Platinchlorid nachweisen.* Nach Abzug von Chromeisen und Magnetkies die bleibenden Silikatteile auf 100 reduzirt:
 
-‚Kalkerde 0,32 0,09
+*) Dr. Bettendorf wies eine äusserst geringe Spur von Phosphor nach, indem er 0,5 Gr. des Nickeleisens in Königswasser löste, abdampfte, mit Schwefelsäure versetzte, wieder eindampfte, um Salzsäure und Salpetersäure zu verjagen. Nach Abscheidung einer geringen Menge Kieselsäure wurde molybdänsaures Ammoniak zugesetzt; es entstand ein äusserst geringer, unwägbarer Niederschlag, indem sich zugleich die Lösung stärker gelb färbte. In jenem Niederschlag von phosphor-molybdänsaurem Ammoniak beträgt dar Gehalt an Phosphorsäure nur 3 pZt.
 
-Eisenoxydul 16,14 3,58
-
-Manganoxydul 0.57 0,183
-
-Natron 1,56 0.40
-
-100.00.
+|              |       |            |
+|--------------|-------|------------|
+| Kieselsäure  | 48,88 | Ox = 26,07 |
+| Tonerde      | 1,27  | 0,59       |
+| Magnesia     | 31,26 | 12,50      |
+| Kalkerde     | 0,32  | 0,09       |
+| Eisenoxydul  | 16,14 | 3,58       |
+| Manganoxydul | 0,57  | 0,13       |
+| Natron       | 1,56  | 0,40       |
+| ~            | 100,00| ~          |
 
 Eine Diskussion dieser Zusammensetzung wird ihre Stelle finden nach
 der unten folgenden Mittheilung der Analyse eines fast Nickeleisen freien
