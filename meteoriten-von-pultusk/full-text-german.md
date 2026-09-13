@@ -46,291 +46,34 @@ Während die bisher betrachteten Steine wenigstens teilweise noch Spuren ihrer k
 
 Die Betrachtung der Rückenseite einiger Steine, Figg. 7 und 8, ist geeignet, die durch das Studium der Form und Schmelzrinde gewonnene Einsicht in die Bewegung der Meteoriten zu erweitern und zugleich v. Haidingers interessante Beobachtung an einem Stannern zu bestätigen (Sitz.-Ber. d. k. Akad. 1862, 22. Mai). Der kleine Stein Fig. 7 bietet uns in _a_ seine geglättete, zu einer kielförmigen Wölbung gestaltete, durch radiale Schmelzlinien bezeichnete Brustseite dar, während _b_ den durch drei zusammenstossende Bruchflächen gebildeten Rücken darstellt. Auf dieser Seite haftet nun durch Schmelz verkittet ein Haufwerk kleiner und kleinster Meteoritenkörner, umrindet oder wohl auch ganz geschmolzen. Dass der Schwarm von Pultusk zertrümmerte bis zur Kleinheit von Sandkörnern oder gar Staub, würde uns vielleicht verborgen geblieben sein, wenn nicht einige grössere Steine auf ihrer Rückenseite fein zerteilte Meteoritenmasse gesammelt und mitgeführt hätten. Die von der Brust des Steins abschmilzenden oder von den Flanken losbröckelnden Teile konnten, wenn sie in die Luftleere hinter dem planetarisch bewegten, mit seiner Brust gegen den stets wachsenden Atmosphärendruck ankämpfenden Aerolithen gelangten, eine grössere Geschwindigkeit als der Hauptkörper annehmen und auf dessen Hinterseite, in der Feuerkugel erglühend, sich wieder mit ihm vereinigen. Auch der Stein Fig. 8 bietet auf seiner conkav verbrochenen Rückseite einige angeschmolzene Meteoriten-Körner dar. Noch an einem dritten, grösseren Steine von Pultusk in der Krantz'schen Sammlung (in den drei Dimensionen messend 85, 60, 45 Mm.), dessen Schmelzrinde 1/2 Mm. erreicht, haftet auf der Rückenseite ein durch Schmelzmasse verkittetes Konglomerat kleiner Meteorkörner.
 
-Dem, was bereits über die Rinde unserer Steine gesagt wurde, möchte
-nur noch hinzuzufügen sein, dass dieselbe sich in keiner Weise von derjeni-
-gen der übrigen Chondrite unterscheidet, demnach im Allgemeinen schwarz,
-matt oder nur schimmernd, rauh oder feinwarzig durch die hervorragenden,
-ungeschmolzenen Nickeleisentheilchen ist. An der Oberfläche vieler Steine be-
-merkt man zahlreiche feine Spalten oder Sprünge, verschiedenen Richtungen
-folgend, zuweilen überrindeten Bruchflächen der Aussenseite ungefähr pa-
-rallel gehend. Die Entstehung dieser Sprünge ist leicht begreiflich; denn
-wie ein glühender Körper Risse bekommt, wenn er plötzlich in kaltem
-Wasser abgeschreckt wird, so muss auch ein kalter Stein zerreissen, welcher
-plötzlich an seiger Oberfläche in die intensivste (luth versetzt wird. Dies
-letztere ist der Fall in Bezug auf die Aörolithen (vgl. v. Reichenbach:
-Die schwarzen Linien und Ablösungen in den Meteoriten, Pogg. Ann. Bd.125,
-8.309). Jene Risse führen uns in das Innere der Steine. Zerschlägt man
-dieselben oder betrachtet man eine frische durch den Niederfall entstandene
-Bruchfläche, so zeigen sich meist viele feine schwarze Linien, die Gesteins-
-masse durchziehend, oft mehrere in ungefähr paralleler Richtung, oder auch
-sich kreuzend oder dichotomisch getheil. Der Ursprung dieser dunklen
-Linien ist bei den Pultusker Steinen sofort klar, da sie fast überall bis zur
-Schmelzrinde zu verfolgen sind. Es sind Spalten, mit Rindensubatanz
-gefüllt, wie v. Reichenbach am gen. U. ausführlich auseinandersetzt.
-Wenngleich die Bildung dieser haarfeinen Linien, als Spalten, in welche
-durch den Luftdruck Rindenschmelz gepresst wurde, bei den Pultusker Stei-
-nen augenfällig ist, so bleibt es dennoch befremdlich, wie die geschmolzene
-Masse durch die allerfeinsten, vier bis sechs Zoll im kalten Gesteine fort-
-setzenden Spalten eindringen konnte, ohne zu erstarren. Ein aus den Tiefen
-des Weltraums in die Höhen unserer Atmosphäre eintretender und erglühen-
-der Aerolith muss in kleinstem Raume, die äussersten Contraste der Tem-
-peratur darbieten. Der in das Innere eindringende schwarze Schmelz ver-
-leiht dem Gesteinsbruche nicht selten ein breccienartiges Ansehen. Von
-allen Seiten, durch jede Kluft und Oeffnung, strebte unter dem wachsenden
-Atmosphärendruck die flüssige und schäumende Rinde in den aus dem
+Dem, was bereits über die Rinde unserer Steine gesagt wurde, möchte nur noch hinzuzufügen sein, dass dieselbe sich in keiner Weise von derjenigen der übrigen Chondrite unterscheidet, demnach im Allgemeinen schwarz, matt oder nur schimmernd, rauh oder feinwarzig durch die hervorragenden, ungeschmolzenen Nickeleisenteilchen ist. An der Oberfläche vieler Steine bemerkt man zahlreiche feine Spalten oder Sprünge, verschiedenen Richtungen folgend, zuweilen überrindeten Bruchflächen der Aussenseite ungefähr parallel gehend. Die Entstehung dieser Sprünge ist leicht begreiflich; denn wie ein glühender Körper Risse bekommt, wenn er plötzlich in kaltem Wasser abgeschreckt wird, so muss auch ein kalter Stein zerreissen, welcher plötzlich an seiner Oberfläche in die intensivste Gluth versetzt wird. Dies letztere ist der Fall in Bezug auf die Aërolithen (vgl. v. Reichenbach: Die schwarzen Linien und Ablösungen in den Meteoriten, Pogg. Ann. Bd. 125, S. 309). Jene Risse führen uns in das Innere der Steine. Zerschlägt man dieselben oder betrachtet man eine frische durch den Niederfall entstandene Bruchfläche, so zeigen sich meist viele feine schwarze Linien, die Gesteinsmasse durchziehend, oft mehrere in ungefähr paralleler Richtung, oder auch sich kreuzend oder dichotomisch geteilt. Der Ursprung dieser dunklen Linien ist bei den Pultusker Steinen sofort klar, da sie fast überall bis zur Schmelzrinde zu verfolgen sind. Es sind Spalten, mit Rindensubstanz gefüllt, wie v. Reichenbach am gen. O. ausführlich auseinandersetzt. Wenngleich die Bildung dieser haarfeinen Linien, als Spalten, in welche durch den Luftdruck Rindenschmelz gepresst wurde, bei den Pultusker Steinen augenfällig ist, so bleibt es dennoch befremdlich, wie die geschmolzene Masse durch die allerfeinsten, vier bis sechs Zoll im kalten Gesteine fortsetzenden Spalten eindringen konnte, ohne zu erstarren. Ein aus den Tiefen des Weltraums in die Höhen unserer Atmosphäre eintretender und erglühender Aerolith muss in kleinstem Raume, die äussersten Contraste der Temperatur darbieten. Der in das Innere eindringende schwarze Schmelz verleiht dem Gesteinsbruche nicht selten ein breccienartiges Ansehen. Von allen Seiten, durch jede Kluft und Öffnung, strebte unter dem wachsenden Atmosphärendruck die flüssige und schäumende Rinde in den aus dem luftleeren Universum kommenden Stein einzudringen. Das körnige Gefüge desselben war für den hineingepressten Schmelz bald leichter bald schwieriger durchdringbar. So sieht man zuweilen von der Rinde aus ein dunkles Maschenwerk sich in das Innere ziehen. Auf dunklem Grunde treten zuweilen mit scharfen Grenzen lichte Partien hervor: es bildet sich eine Pseudobreccie. Untersucht man die Sache genauer, so überzeugt man sich leicht, dass die dunklen und lichten Partien bis auf die Färbung ganz gleichartig sind. Ein ausgezeichnetes Beispiel einer solchen Pseudobreccie bietet der in Fig. 9 (in natürlicher Grösse) abgebildete Stein; der obere Teil des in der Figur sichtbaren Bruches ist von einem Eisenspiegel bedeckt. Das merkwürdigste Beispiel des Nebeneinandervorkommens von lichter und dunkler Substanz auf derselben Fläche bietet bekanntlich Siena dar (16. Juli 1794; s. G. Rose Beschr. u. Einteil. d. Met. S. 84); hier möchte es indess eine wahre Breccie sein.
 
+Während die eben erwähnten, zuweilen mit Schmelz erfüllten Spalten sich erst beim Erglühen, d. h. in dem Anziehungsgebiete der Erde bildeten, bieten die Pultusker Steine noch eine andere Art von Ablösungsflächen dar, wie sie gleich ausgezeichnet und gleich häufig schwerlich an andern Aerolithen beobachtet worden sind. Es sind scheinbar Rutschflächen mit einem Spiegel oder Harnisch von feinen Nickeleisenblättchen, welche eine deutliche Längsfurchung tragen, bedeckt. Zuweilen fliessen die Metallblättchen zu einer längs gefältelten äusserst feinen Eisenlamelle zusammen. Auf solcher Ablösung trennt der Stein sich leicht und zeigt dann auf beiden getrennten Flächen Eisenspiegel mit korrespondirender Furchung. Mehrere solcher Spiegel durchsetzen zuweilen den Meteoriten, teils ungefähr parallel, teils sich unter spitzen Winkeln schneidend. Fig. 10 (halbe natürliche Grösse) versucht diese merkwürdige Erscheinung wiederzugeben. Der 952 Gr. schwere Stein stellt sich wie Fig. 1 als Fragment eines abgeplatteten Sphäroids dar, dessen Umriss teils durch ein Kreissegment, teils durch eine vertikale, stark überrindete Bruchfläche, teils endlich durch einen frischen, beim Auffallen entstandenen Bruch gebildet wird. Dieser letztere zeigt mehrere zum Teil unter spitzem Winkel zusammenstossende mit ausgezeichnetem, gestreiften Eisenspiegel bedeckte Ablösungsflächen. Diese Spiegelflächen boten nachweislich oft Veranlassung zur Trennung des Steins bei seinem Eintritt in die tellurische Sphäre. Manche unvollkommen überrindete Bruchflächen lassen deutlich erkennen, dass sie ehemals gefurchte Eisenspiegel waren. Metallische Harnische, wie bei den Pultuskern, bieten der Erklärung nicht geringe Schwierigkeiten dar. Dass sie kosmischer und nicht wie die Schmelzlinien und -Flächen tellurischer Entstehung sind, bedarf keines Beweises. Gestreifte Spiegelflächen, wie sie auf Erzlagerstätten sich so häufig finden, erklären sich gewöhnlich durch eine Verrutschung der zu beiden Seiten der Kluft befindlichen Massen. Sie finden sich indessen auch unter Umständen, wo wir keine Verrutschung, sondern nur einen Druck zur Erklärung annehmen können. Wie nun auch die entsprechende Erscheinung, spiegelnde und gefurchte Ablösungen, sich bei Meteoriten erklären mag --- ob durch blossen Druck oder durch Verrutschung; an Bewegung fehlt es in jenen Räumen ja nicht ---: in keinemFalle können wir v. Reichenbachs seltsamer Ansicht zustimmen, "dass die Lamellen feiner Eisenschüppchen [für welche bisher Schönenberg in München das ausgezeichnetste Beispiel war] eine Folge der Schichtung der ungleichförmigen Substanzen sei."
 
-luftleeren Universum kommenden Stein einzudringen. Das körnige Gefüge
-desselben war für den hineingepressten Schmelz bald leichter bald schwie-
-riger durchdringbar. So sieht man zuweilen von der Rinde aus ein dunkles
-Maschenwerk sich in das Innere ziehen. Auf dunklem Grunde treten zu-
-weilen mit scharfen Grenzen lichte Partien hervor: es bildet sich eine Pseu-
-dobreccie. Untersucht man die Sache genauer, so überzeugt man sich leicht,
-dass die dunklen und lichten Partien bis auf die Färbung ganz gleichartig
-sind. Ein ausgezeichnetes Beispiel einer solchen Pseudobreccie bietet der
-in Fig. 9 (in natürlicher Grösse) abgebildete Stein; der obere Theil des in
-der Figur sichtbaren Bruches ist von einem Eisenspiegel bedeckt. Das merk-
-würdigste Beispiel des Nebeneinandervorkommens von lichter und dunkler
-Substanz auf derselben Fläche bietet bekanntlich Siena dar (16. Juli'1794;
-s. G. Rose Beschr. u. Eintheil. d. Met. S. 84); hier möchte es indess eine
-wahre Breccie sein.
+Die vollkommenste Analogie mit Pultusk bietet Aigle dar, sowohl in Hinsicht der --- jedenfalls mehrere Tausend betragenden --- Zahl der Steine, ihrer Form, Grösse, Beschaffenheit der Rinde, als auch in Bezug der schmelzerfüllten Spalten (als schwarze Linien im frischen Bruch erscheinend) und der Eisenspiegel. Ganzumrindete Steine von Aigle würde Niemand aus Pultuskern auslesen können, während die Chondrite von Knyahinya einen ganz verschiedenen Habitus in Form und Rinde zeigen.
 
-Während die eben erwähnten, zuweilen mit Schmelz erfüllten Spalten
-sich erst beim Erglühen, d. h. in dem Anziehungsgebiete der Erde bildeten,
-bieten die Pultusker Steine noch eine andere Art von Ablösungsflächen dar,
-wie sie gleich ausgezeichnet und gleich häufig schwerlich an andern Aero-
-lithen beobachtet worden sind. Es sind scheinbar Rutschflächen mit einem
-Spiegel oder Harnisch von feinen Nickeleisenblättchen, welche eine deutliche
-Längsfurchung tragen, bedeckt. Zuweilen fliessen die Metallblättchen zu
-einer längs gefültelten äusserst feinen Eisenlamelle zusammen. Auf solcher
-Ablösung trennt der Stein sich leicht und zeigt dann auf beiden getrennten
-Flächen Eisenspiegel mit korrespondirender Furchung. Mehrere solcher
-Spiegel durchsetzen zuweilen den Meteoriten, theils ungefähr parallel, theils
-eich unter spitzen Winkeln schneidend. Fig. 10 (halbe natürliche Grösse)
-versucht diese merkwürdige Erscheinung wiederzugeben. Der 952 Gr.
+Die Chondrite, die gewöhnlichste Art der Meteoriten, bieten der mineralogischen Untersuchung sehr grosse Schwierigkeiten dar, so dass es selbst dem ausdauernden Scharfsinn G. Roses nicht gelang, die mineralogische Beschaffenheit derselben vollkommen zu ergründen. Bei der Erforschung tellurischer Gesteine (Laven) bieten die in Drusen ausgebildeten Mineralien, insofern wir sie auch in der Grundmasse voraussetzen können, ein wesentliches Hülfsmittel dar, welches uns leider bei den Aerolithen fast gänzlich abgeht, denn unter diesen enthalten nur Invinas (15. Juni 1821, Eukrit) und Richmond (4. Juni 1828, Chondrit) krystallbekleidete Drusen. Wäre es uns vergönnt, die Meteorsteine in dem Zustande wie sie durch den Raum des Alls sich bewegen und in die tellurische Sphäre eintreten, zu untersuchen, dann könnten wir wohl hoffen durch sorgsames Studium ihrer Oberfläche, welche der Krystallisation freieren Spielraum bot, etwas mehr über die mineralogische Konstitution der Steine auszumachen. Wie aber nur die Rinde, nie der Kern unseres eigenen Planeten sich der Beobachtung erschliesst, so können wir umgekehrt niemals die kosmische Oberfläche jener planetarischen Körper, sondern nur ihr Inneres kennen lernen.
 
-. schwere Stein stellt sich wie Fig. 1 als Fragment eines abgeplatteten
-Sphäroids dar, dessen Umriss theils durch ein Kreissegment, theils durch
-eine vertikale, stark überrindete Bruchfläche, theils endlich durch einen
-frischen, beim Auffallen entstandenen Bruch gebildet wird. Dieser letztere
-zeigt mehrere zum T'heil unter spitzem Winkel zusammenstossende mit aus-
-geseichnetem, gestreiften Eisenspiegel bedeckte Ablösungsflächen. Diese
-Spiegelflächen. boten nachweislich oft Veranlassung zur Trennung des Steins
-bei seinem Eintritt in die tellurische Sphäre. Manche unvollkommen über-
-rindete Bruchflächen lassen deutlich erkennen, dass sie ehemals gefurchte
+Die Steine von Pultusk bieten der mineralogischen Untersuchung grosse Schwierigkeiten dar, indem einerseits die Grundmasse kleinkörnig mit nur wenigen, schwer bestimmbaren krystallinischen Ausscheidungen sich zeigte, andrerseits es sich unmöglich erwies eine durchscheinende Platte aus Pultusk zur mikroskopischen Untersuchung zu schleifen. Auf frischem Bruche zeigen die Steine eine lichtgraue Farbe, sie gehören zu den lichteren Chondriten, wenngleich sie nicht so graulichweiss sind wie Tirlemont (7. Dezbr. 1863), Mauerkirchen (20. Nov. 1768), Bachmut (15. Febr. 1814) oder New Concord (1. Mai 1860). Pultusk besitzt eine feinkörnige bis dichte Grundmasse, welche ein geringerer Grad krystallinischer Ausbildung von vielen andern Chondriten unterscheidet, namentlich im Vergleiche zu den höchst krystallinischen Steinen von Erxleben (15. Apr. 1812), Klein Wenden (16. Sept. 1843) und Dolores Hidalgo Mexico (in der Krantz'schen Sammlung). --- Wie in Bezug auf Gestalt und Rinde, so tritt auch in Hinsicht der Gesteinsbeschaffenheit zwischen Pultusk und Gütersloh eine grosse Ähnlichkeit hervor; nur besitzt der westphälische Stein zahlreichere Kugeln als der polnische. Letzterem fast ununterscheidbar gleich ist Alessandria (2. Febr. 1860), gleichfalls mit Eisenspiegeln. Pultusk ist schwer zersprengbar und zugleich leicht zerreiblich, wie kein irdisches Gestein. Während kleinere Stücke im Mörser sich leicht zerreiben, ist es nicht ganz leicht mit dem Hammer grössere Teile abzuschlagen: eine Folge der Verbindung so heterogener Körper, des Nickeleisens und der Silikate. Auf frischem Bruch bietet bei flüchtiger Betrachtung Pultusk eine fast gleichartige lichtgraue Masse dar, in welcher man bei genauerem Sehen folgende Gemengteile unterscheidet: Nickeleisen, Schwefeleisen (Magnetkies), Kugeln, Olivin, weisse Krystallkörner, Chromeisen.
 
-Eisenspiegel waren. Metallische Harnische, wie bei den Pultuskern, bieten
-der Erklärung nicht geringe Schwierigkeiten dar. Dass sie kosmischer und
-nicht wie die Schmelzlinien und -Flächen tellurischer Entstehung sind, be-
-darf keines Beweises. Gestreifte Spiegelflächen, wie sie auf Erzlagerstätten
-sich so häufig finden, erklären sich gewöhnlich durch eine Verrutschung der
-zu beiden Seiten der Kluft befindlichen Massen. Sie finden sich indessen
-auch unter Umständen, wo wir keine Verrutschung, sondern nur einen Druck
-zur Erklärung annehmen können. Wie nun auch die entsprechende Erschei-
-nung, spiegelnde und gefurchte Ablösungen, sich bei Meteoriten erklären mag
-— ob durch blossen Druck oder durch Verrutschung: an Bewegung fehlt es
-in jenen Räumen ja nicht —: in keinemFalle können wir v. Reichenbach's
-seltsaher Ansicht zustimmen, "dass die Lamellen feiner Eisenschüppchen
-[für welche bisher Schönenberg in München das ausgezeichnetste Beispiel
-war] eine Folge der Schichtung der ungleichförmigen Substanzen sei".
+Das Nickeleisen, welches sich auf dem selbst nur wenig der Verwitterung ausgesetzten Bruche sogleich durch die braune Oxyd-Färbung der umgebenden Silikatteile charakterisirt, kommt in unsern Steinen in dreifacher Weise vor: in grösseren Körnern, in Lamellen auf den Spiegeln, endlich in zackig verästelten Teilchen der Grundmasse beigemengt.
 
-Die vollkommenste Analogie mit Pultusk bietet Aigle dar, sowohl in Hin-
-sicht der — jedenfalls mehrere Tausend betragenden — Zahl der Steine, ihrer
-Form, Grösse, Beschaffenheit der Rinde, als auch in Bezug der schmelzerfüll-
-ten Spalten (als schwarze Linien im frischen Bruch erscheinend) und der
-Eisenspiegel. Ganzumrindete Steine von Aigle würde Niemand aus Pultuskern
-auslesen können, während die Chondrite von Knyahinya einen ganz verschie-
-denen Habitus in Form und Rinde zeigen.
+Die grösseren Körner besitzen eine unregelmässige sphäroidische Gestalt, zuweilen scharfkantig, Krystallform nie zu erkennen, mit einem Messer leicht aus dem Stein abzuheben. Die Körner zeigen angeschliffen fast silberweissen Glanz und lassen, wenn mit verdünnter Salpetersäure geätzt, Ätzlinien (von Zwillingslamellen herrührend) aber keine Widmanstädten'sche Figuren wahrnehmen. Auf der geschliffenen Fläche des Korns bemerkte ich zuweilen Einmengungen von tombakbraunem Magnetkies, welche bei Behandlung mit verdünnter Chlorwasserstoffsäure reichlich Schwefelwasserstoff entwickelten. Das spezifische Gewicht möglichst reiner Nickeleisen-Körner bestimmte ich = 7,017 (bei 17 1/2° C.). Dies Gewicht beweist, dass die Körner in ihrem Innern leichtere Gemengteile einschliessen: Silikate und Magnetkies, was auch durch die Analyse bestätigt wird. Sieht man von den Verunreinigungen ab, so stellen die Körner eine Legirung von 1 At. Nickel mit 14 At. Eisen dar, welche der Zusammensetzung
 
-Die Chondrite, die gewöhnlichste Art der Meteoriten, bieten der mine-
-ralogischen Untersuchung sehr grosse Schwierigkeiten dar, so dass es selbst
-dem ausdauernden Scharfsinn G. Rose's nicht gelang, die mineralogische
-Beschaffenheit derselben vollkommen zu ergründen. Bei der Erforschung
-tellurischer Gesteine (Laven) bieten die in Drusen ausgebildeten Mineralion,
-insofern wir sie auch in der Grundmasse voraussetzen können, ein wesent-
-liches Hülfsmittel dar, welches uns leider bei den Aerolithen fast gänzlich
-abgeht, denn unter diesen enthalten nur Invinas (15. Juni 1821, Eukrit) und
-Richmond (4. Juni 1828, Chondrit) krystallbekleidete Drusen. Wäre es uns
-vergönnt, die Meteorsteine in dem Zustande wie sie durch den Raum des
-Alle sich bewegen und in die tellurische Sphäre eintreten, zu untersuchen,
-dann könnten wir wohl hoffen durch sorgsames Studium ihrer Oberfläche,
-welche der Krystallisation freieren Spielraum bot, etwas mehr über die mi-
-neralogische Constitution der Steine auszumachen. Wie aber nur die Rinde,
-nie der Kern unseres eigenen Planeten sich der Beobachtung erschliesst, so
+Nickel 6,97  
+Eisen 93,03
 
+entsprechen, demnach nahe übereinstimmend mit dem Meteoreisen von Seeläsgen (Rammelsberg), Arva (Löwe), Rasgata (Wöhler), Cosby Creek (Bergemann) u. a.
 
+Der Eisenlamellen auf den Ablösungsflächen wurde bereits oben gedacht; sie bedingen das Erscheinen jener linearen, fast wurmförmigen Wülste auf der angeschmolzenen Rinde, welche sich zuweilen ein bis zwei Zoll weit verfolgen lassen. Auf den mit Eisenspiegel bedeckten Ablösungen sah ich zuweilen bräunliche Tropfen von Eisenchlorür ausgeschwitzt, eine bei Meteoreisen bekannte Erscheinung. Woher stammt das Chlor dieses Verwitterungsprodukts, da jenes Element in den meteorischen Massen bisher nicht mit Sicherheit nachgewiesen wurde? Wohl aus der Luft.
 
+Die Menge des in zackigen Teilchen als wesentlicher Bestandteil des Meteorits vorhandenen Nickeleisens lässt sich nicht auf dem Bruche, sondern nur auf angeschliffenen Flächen ermessen. Im Vergleiche zur Betrachtung des Bruchs wird man überrascht durch die Menge des Eisens, welches auf der Schlifffläche sogleich hervortritt. Die Körner desselben sind so hackig, zackig, verästelt, wie ich es bei keinem anderen Meteoriten in gleicher Weise gesehen. Das Eisen legt sich gerne in einer Sphäre kleinster Körnchen um die Kugeln und kugligen Partien des Steins (wenigstens um die lichten, um die dunklen habe ich es bisher nicht gesehen). Die höchst verästelte Beschaffenheit des Nickeleisens macht es unmöglich, auch nur angenähert durch Ausziehen mit einem Magnetstabe die Menge des Nickeleisens zu bestimmen. Denn bei dem Pulvern des Steins im Mörser legen sich die breitgequetschten Eisenteile noch mehr um die Steinpartikel herum, welch letztere in keiner mechanischen Weise von jenen vollständig zu sondern sind. Wie wenig genaue, wenngleich unter einander übereinstimmende Resultate man bei der magnetischen Behandlung von Pultusk erhält, leuchtet aus Folgendem ein: Es wurde das Steinpulver mit dem Magnet ausgezogen, das Unmagnetische feiner gepulvert und wiederholt ausgezogen, das Magnetische im Wasser von unmagnetischen Steinteilen abgeschlämmt, feiner gepulvert, wiederum ausgezogen und abgeschlämmt. Das Resultat zweier sehr zeitraubenden Versuche dieser Art war übereinstimmend 29,4 pZt. magnetische und von diesen ganz untrennbare Silikat-Teile, eine offenbar ganz falsche Bestimmung des Nickeleisens, wie schon die Betrachtung unter dem Mikroskop und gleich überzeugend die Erwägung des unten mitgeteilten spezifischen Gewichts des Meteoriten lehrt. Die relative Menge des Nickeleisens in Pultusk schwankt wohl etwas, übersteigt aber schwerlich 15 pZt.
 
+Das im Pultusker Stein vorhandene Schwefeleisen verrät sich sogleich durch Schwefelwasserstoff-Entwicklung bei Übergiessen mit Chlorwasserstoffsäure und durch Entwicklung von schwefliger Säure beim Glühen des Steinpulvers unter Luftzutritt. Es findet sich nur in kleinen unregelmässig begrenzten Körnern und körnigen Partien von tombakbrauner, doch durch geringe Verwitterung dunkelstahlblauer Farbe. Auch im Chondrit von Siena zeigt sich Magnetkies in bis zwei Linien grossen körnigen Aggregaten, teils von tombakbrauner, teils von jener dunkelstahlblauer Farbe. Im Innern eines grössern angeschliffenen Eisenkorns nahm ich Magnetkies wahr. Nicht ganz gleichmässig scheint der Magnetkies in den Pultusker Steinen vorhanden zu sein, ich bestimmte dessen Menge in einem Stücke = 3,8 pZt., in einem andern = 4,5 pZt., in einem Dritten 3,3 pZt. der ganzen Masse. --- In dem Chondrit von Blansko (25. Nov. 1833) bestimmte Berzelius die Schwefeleisen-Verbindung = 2,7 pZt. [berechnet als Magnetkies], in dem Chondrit von Kleinwendin, Rammelsberg = 5,2 pZt. [als Magnetkies berechnet]. Hexaëdrische, etwa als Eisenkies zu deutende Formen habe ich bei Pultusk niemals wahrgenommen. Speisgelbe Körnchen, welche man zuweilen au sehen glaubt, sind wohl Nichts als Nickeleisen, dessen wechselnden Farbenschein schon Berzelius (Über Meteorsteine, Pogg. Ann. Bd. 33. 1834) erwähnt S. 8: "von den glänzenden Punkten des Nickeleisens im Steine von Blansko erscheinen einige rötlich, sind indess nichts Anderes als angelaufenes Nickeleisen."
 
+In den Steinen von Pultusk finden sich die für die Chondrite charakteristischen Kugeln weder besonders zahlreich, noch von bemerkenswerter Grösse. G. Rose hebt in seiner klassischen Arbeit über Meteoriten unter denjenigen Punkten, welche einer weiteren Untersuchung noch bedürfen, auch die Kugeln hervor. Leider war es mir bei der relativen Seltenheit und Kleinheit (fast immer unter 1 Mm.) dieser Mineralformen nicht möglich, zu einer gesonderten Analyse genügendes Material zu sammeln. Bei Pultusk sind die Kugeln verschiedener Art in Farbe, Härte, chemischer Zusammensetzung. Die dunkeln schwärzlichgrauen Kugeln lassen sich mit dem Messer ohne zu zerbrechen aus der Steinmasse ausheben, sie sind hart, von schwachem Fettglanz, v. d. L. schmelzbar, ihre Oberfläche ist etwas uneben, zuweilen punktirt, in Folge der Faserzusammensetzung, von welcher bereits G. Rose bemerkt, dass sie eine exzentrische und nicht wie bei irdischen Vorkommnissen eine radiale ist. Diese Kugeln geben ein graues Pulver, welches durch kochende Chlorwasserstoffsäure schwer zersetzbar ist und pulverige Kieselsäure zurücklässt. Die Lösung gibt neben Eisenoxyd eine namhafte Menge von Tonerde, viel Magnesia und eine Spur von Kalkerde. Dem Auge unsichtbar ist eine kleine Menge von Schwefeleisen eingesprengt, welches sich bei Behandlung des Pulvers mit Chlorwasserstoffsäure verrät.
 
-können wir umgekehrt niemals die kosmische Oberfläche jener planetarischen
-Körper, sondern nur ihr Inneres kennen lernen.
-
-Die Steine von Pultusk bieten der mineralogischen Untersuchung grosse
-Schwierigkeiten dar, indem einerseits die Grundmasse kleinkörnig mit nur
-wenigen, schwer bestimmbaren krystallinischen Ausscheidungen sich zeigte,
-andrerseits es sich unmöglich erwies eine durchscheinende Platte aus Pultusk
-zur mikroskopischen Untersuchung zu schleifen. Auf frischem Bruche zei-
-gen die Steine eine lichtgraue Farbe, sie gehören zu den lichteren Chon-
-driten, wenngleich sie nicht a0 graulichweiss sind wie Tirlemont (7. Decbr.
-1863), Mauerkirchen (20. Nov. 1768), Bachmut (15. Febr. 1814) oder New
-Concord (1. Mai 1860). Pultusk besitzt eine feinkörnige bis dichte Grund-
-masse, welche ein geringerer Grad krystallinischer Ausbildung von vielen
-andern Chondriten unterscheidet, namentlich im Vergleiche zu den höchst
-krystallinischen Steinen von Erxleben (15. Apr. 1812), Klein Wenden (16. Sept.
-1843) und Dolores Hidalgo Mexico (in der Krantz'schen Sammlung). —
-Wie in Bezug auf Gestalt und Rinde, so tritt auch in Hinsicht der Gesteins-
-beschaffenheit zwischen Pultusk und Gütersloh eine grosse Aehnlichkeit her-
-vor; nur besitzt der westphälische Stein zahlreichere Kugeln als der polnische.
-Letzterem fast ununterscheidbar gleich ist Alessandria (2. Febr. 1860), gleich-
-falla mit Eisenspiegeln. Pultusk ist schwer zerspreugbar und zugleich leicht
-zerreiblich, wie kein irdisches Gestein. Während kleinere Stücke im Mörser
-sich leicht zerreiben, ist ea nicht ganz leicht mit dem Hammer grössere
-Theile abzuschlagen:: eine Folge der Verbindung so heterogener Körper,
-des Nickeleisene und der Silicate. Auf frischem Bruch bietet bei flüchtiger
-Betrachtung Pultusk eine fast gleichartige lichtgraue Masse dar, in welcher
-man: bei genauerem Sehen folgende Gemengtheile unterscheidet: Nickel-
-eisen, Schwefeleisen (Magnetkies), Kugeln, Olivin, weisse Krystallkörner,
-Chromeisen.
-
-Das Nickeleisen, welches sich auf dem selbst nur wenig der Verwitte-
-rung ausgesetzten Bruche sogleich durch die braune Oxyd-Färbung der
-umgebenden Silicattheile charakterisirt, kommt in unsern Steinen in drei-
-facher Weise vor: in grösseren Körnern, in Lamellen auf den Spiegeln,
-endlich in zackig verästelten Theilchen der Grundmasse beigemengt.
-
-XDie grösseren Körner besitzen eine unregelmässige sphäroidische Gestalt,
-zuweilen scharfkantig, Krystallform nie zu erkennen, mit einem Messer
-leicht aus dem Stein abzuheben. Die Körner zeigen angeschliffen fast
-
-
-
-silberweissen Glanz und lassen, wenn mit verdünnter Salpetersäure geätzt, Aetz-
-linien (von Zwillingslamellen herrührend) aber keine Widmanstädten'sche
-Figuren wahrnehmen. Auf der geschliffenen Fläche des Korns bemerkte
-ich zuweilen Einmengungen von tombakbraunem Magnetkies, welche bei
-Behandlung mit verdünnter Chlorwasserstoffsäure reichlich Schwefelwasser-
-stoff entwickelten. Das specifische Gewicht möglichst reiner Nickeleisen-
-Körner bestimmte ich = 7,017 (bei 17" C.). Dies Gewicht beweist, dass
-die Körner in ihrem Innern leichtere Gemengtheile einschliessen: Silicate
-und Magnetkies, was auch durch die Analyse bestätigt wird. Sieht man von
-den Verunreinigungen ab, so stellen die Körner eine Legirung von 1 At.
-Nickel mit 14 At. Eisen dar, welche der Zusammensetzung
-. Nickel 6,97
-
-Eisen 98,03
-entsprechen, demnach nahe übereinstimmend mit dem Meteoreisen von Seel-
-äsgen (Rammelsberg), Arva (Löwe), Rasgata (Wöhler), Cosby Creek
-(Bergemaun) u. a. "
-
-Der Eisenlamellen auf den Ablösungsflächen wurde bereits oben ge-
-dacht; sie bedingen das Erscheinen jener linearen, fast wurmförmigen '
-Wülste auf der angeschmolzenen Rinde, welche sich zuweilen ein bis zwei
-Zoll weit verfolgen lassen. Auf den mit Eisenspiegel bedeckten Ablösungen
-sah ich zuweilen bräunliche Tropfen von Eisenchlorür ausgeschwitzt, eine
-bei Meteoreisen bekannte Erscheinung. Woher stammt das Chlor dieses
-Verwitterungsproducts, da jenes Element in den meteorischen Massen bisher
-nicht mit Sicherheit nachgewiesen wurde? Wohl aus der Luft.
-
-Die Menge des in zackigen Theilchen als wesentlicher Bestandtheil des
-Meteorits vorhandenen Nickeleisens lässt sich nicht auf dem Bruche, sondern
-nur auf angeschliffenen Flächen ermessen. Im Vergleiche zur Betrachtung
-des Bruchs wird man überrascht durch die Menge des Eisens, welches auf
-der Schlififläche sogleich hervortritt. Die Körner desselben sind so hackig,
-zackig, verästelt, wie ich es bei keinem anderen Meteoriten in gleicher Weise
-gesehen. Das Eisen legt sich gerne in einer Sphäre kleinster Körnchen um
-die Kugeln und kugligen Partien des Steine (wenigstens um die lichten,
-um die dunklen habe ich es bisher nicht gesehen). Die höchst verästelte
-Beschaffenheit des Nickeleisens macht es unmöglich, auch nur angenähert
-durch Aussiehen mit einem Magnetstabe die Menge des Nickeleisena zu be-
-stimmen. Denn bei dem Pulvern des Steins im Mörser legen sich die breit-
-
-
-
-gequetschten Eisentheile noch mehr um die Steinpartikel herum, welch
-letztere in keiner mechanischen Weise von jenen vollständig zu sondern
-sind. Wie wenig genaue, wenngleich unter einander übereinstimmende Re-
-sultate man bei der magnetischen Behandlung von Pultusk erhält, leuchtet aus
-Folgendem ein: Es wurde das Steinpulver mit dem Magnet ausgezogen, das
-Unmagnetische feiner gepulvert und wiederholt ausgezogen, das Magnetische
-im Wasser von unmagnetischen Steintheilen abgeschlämmt, feiner gepulvert,
-wiederum ausgezogen und abgeschlämmt. Das Resultat zweier sehr zeitrauben-
-den Versuche dieser Art war übereinstimmend 29,4 pCt. magnetische und von
-diesen ganz untrennbare Silicat-Theile, eine offenbar ganz falsche Bestimmung
-des Nickeleisens, wie schon die Betrachtung unter dem Mikroskop und gleich
-überzeugend die Erwägung des unten mitgetheilten specifischen Gewichts des
-Meteoriten lehrt. Die relative Menge des Nickeleisens in Pultusk schwankt
-wohl etwas, übersteigt aber schwerlich 15 pÜt.
-
-Das im Pultusker Stein vorhandene Schwefeleisen verräth sich sogleich
-durch Schwefelwasserstoff-Entwicklung bei Uebergiessen mit Chlorwasserstoff-
-säure und durch Entwicklung von schwefliger Säure beim Glühen des Stein-
-pulvers unter Luftzutritt. Es findet sich nur in kleinen unregelmässig be-
-gronzten Körnern und körnigen Partien von tombakbrauner, doch durch
-geringe Verwitterung dunkelstahlblauer Farbe. Auch im Chondrit von Siena
-zeigt sich Magnetkies in bis zwei Linien grossen körnigen Aggregaten, theils
-von tombakbrauner, theils von jener dunkelstahlblauer Farbe. Im Innern
-eines grössern angeschliffenen Eisenkorns nahm ich Magnetkies wahr. Nicht
-ganz gleichmässig scheint der Magnetkies in den Pultusker Steinen vorhan-
-den zu sein, ich bestimmte dessen Menge in einem Stücke = 3,8 pCt., in
-einem andern = 4,5 pCt., in einem Dritten 3,3 pCt. der ganzen Masse. —
-In dem Chondrit von Blansko (25. Nov. 1833) bestimmte Berzelius die
-Schwefeleisen-Verbindung = 2,7 pCt. [berechnet als Magnetkies], in dem
-Chondrit von Kleinwendin, Rammelsberg = 5,2 pCt. [als Magnetkies
-berechnet]. Hexaödrische, etwa als Eisenkies zu deutende Formen habe ich
-bei Pultusk niemals wahrgenommen. Speisgelbe Körnchen, welche man zu-
-weilen au sehen glaubt, sind wohl Nichts als Nickeleisen, dessen wechselnden
-Farbenschein schon Berzelius (Ueber Meteorsteine, Pogg. Ann. Bd.XAXXIU
-1884) erwähnt 8.8: "von den glänzenden Punkten des Nickeleisens im Steine
-von Blansko erscheinen einige röthlich, sind indess nichts Anderes als an-
-gelaufenen Nickeleisen."
-
-
-In den Steinen von Pultusk finden sich die für die Chondrite ckarak-
-teristischen Kugeln weder besonders zahlreich, noch von bemerkenswerther
-Grösse. G. Rose hebt in seiner klassischen Arbeit über Meteoriten unter
-denjenigen Punkten, welche einer weiteren Untersuchung noch bedürfen,
-auch die Kugeln hervor. Leider war es mir bei der relativen Seltenheit
-und Kleinheit (fast immer unter 1 Mm.) dieser Mineralformen nicht möglich,
-zu einer gesonderten Analyse genügendes Material zu sammeln. Bei Pultusk
-sind die Kugeln verschiedener Art in Farbe, Härte, chemischer Zusammen-
-setzung. Die dunkeln schwärzlichgrauen Kugeln lassen sich mit dem Messer
-ohne zu zerbrechen aus der Steinmasse ausheben, sie sind hart, von schwachem
-Fettglanz, v. d. L. schmelzbar, ihre Oberfläche ist etwas uneben, zuweilen
-punktirt, in Folge der Faserzusammensetzung, von welcher bereits G. Rose
-bemerkt, dass sie eine excentrische und nicht wie bei irdischen Vorkommnissen
-eine radiale ist. Diese Kugeln geben ein graues Pulver, welches durch kochende
-Chlorwasserstoffeäure schwer zersetzbar ist und pulverige Kieselsäure zurück-
-lässt. Die Lösung gibt neben Eisenoxyd eine namhafte Menge von Thon-
-erde, viel Magnesia und eine Spur von Kalkerde.e Dem Auge unsichtbar
-ist eine kleine Menge von Schwefeleisen eingesprengt, welches sich bei Be-
-handlung des Pulvers mit Chlorwasserstoffsäure verräth.
-
-Ausser den dunklen Kugeln gibt es in den Pultusker Steinen auch lichte,
-verschiedentlich gefärbte: lichtgrau, gelblich, weiss, bläulichweiss, bläulich-
-grau. Letztere beiden Farbentöne sehr selten. Gewöhnlich haben diese Kugeln
-eine anders gefärbte Peripherie, lichter oder dunkler. Ich beobachtete eine 1,5
-Mm. grosse bläulichweisse Kugel mit grünlichweisser Hülle. Diese lichteren
-Kugeln haben keine deutliche Faserstruktur, wie jene dunklen, sie sind weniger
-hart, ohne den zähen Zusammenhalt jener. Während die dunklen Conkretio-
-nen auf der Bruchfläche des Steins entweder mit ihrer Wölbung hervorragend
-erscheinen, oder eine Höhlung zurückgelassen haben, so werden die lichten Ku-
-geln vom Bruch stets durchrissen. Betrachtet man sorgsam eine angeschliflene
-Fläche, so ergibt sich, dass ein grosser Theil der feinkörnigen Grundmasse des
-Gesteins eine sphärolithische Struktur anzunehmen strebt. Es tritt dies auch
-besonders durch die kleinsten Partien des Nickeleisens hervor, welche häufig
-eine der Kreisform genäherte Lagerung zeigen. — Schon oben wurde be-
-merkt, dass ich die dunklen Kugeln von Eisenhülle nicht umgeben sah. —
-Die mineralogische Deutung dieser verschiedenartig gefärbten Kugeln ist
-begreiflicher Weise noch nicht möglich. Die meisten mögen einem indivi-
-
-
-
-dualisirten Mineral nicht zugehören, sondern lediglich sphärolithisch ausge-
-bildete Grundmasse sein. Die gelblichweissen Kugeln, welche theils homogen,
-theils feinkörnig gemengt erscheinen, möchte ich für Olivin halten. Sie
-sind v. d. L. schwer schmelzbar. Die qualitative Analyse liess nur Kiesel-
-säure, Eisenoxydul, Magnesia erkennen; durch Chlorwasserstoffsäure zersetzbar.
+Ausser den dunklen Kugeln gibt es in den Pultusker Steinen auch lichte, verschiedentlich gefärbte: lichtgrau, gelblich, weiss, bläulichweiss, bläulichgrau. Letztere beiden Farbentöne sehr selten. Gewöhnlich haben diese Kugeln eine anders gefärbte Peripherie, lichter oder dunkler. Ich beobachtete eine 1,5 Mm. grosse bläulichweisse Kugel mit grünlichweisser Hülle. Diese lichteren Kugeln haben keine deutliche Faserstruktur, wie jene dunklen, sie sind weniger hart, ohne den zähen Zusammenhalt jener. Während die dunklen Konkretionen auf der Bruchfläche des Steins entweder mit ihrer Wölbung hervorragend erscheinen, oder eine Höhlung zurückgelassen haben, so werden die lichten Kugeln vom Bruch stets durchrissen. Betrachtet man sorgsam eine angeschliffene Fläche, so ergibt sich, dass ein grosser Teil der feinkörnigen Grundmasse des Gesteins eine sphärolithische Struktur anzunehmen strebt. Es tritt dies auch besonders durch die kleinsten Partien des Nickeleisens hervor, welche häufig eine der Kreisform genäherte Lagerung zeigen. --- Schon oben wurde bemerkt, dass ich die dunklen Kugeln von Eisenhülle nicht umgeben sah. --- Die mineralogische Deutung dieser verschiedenartig gefärbten Kugeln ist begreiflicher Weise noch nicht möglich. Die meisten mögen einem individualisirten Mineral nicht zugehören, sondern lediglich sphärolithisch ausgebildete Grundmasse sein. Die gelblichweissen Kugeln, welche teils homogen, teils feinkörnig gemengt erscheinen, möchte ich für Olivin halten. Sie sind v. d. L. schwer schmelzbar. Die qualitative Analyse liess nur Kieselsäure, Eisenoxydul, Magnesia erkennen; durch Chlorwasserstoffsäure zersetzbar.
 
 In der lichtgrauen Grundmasse, welche sich einer eingehbenderen mine-
 ralogischen Diagnose entzieht, liegen nun ausser dem kugligen Gebilden
@@ -424,10 +167,10 @@ Da das Gewicht der geschmolzenen Rinde ein geringeres ist als dasje-
 nige des krystallinischen Steins, so kommt dem letztern, nachdem man die
 schwarze Hülle entfernt, ein höheres Gewicht zu, nämlich = 3,725 (15'° C.).
 Noch höher stellt sich das Gewicht wenn der rindenlose Stein möglichst
-fein gepulvert wird — 3,782 (bei 22°C). Das Gewicht von Pultusk ist dem-
+fein gepulvert wird --- 3,782 (bei 22°C). Das Gewicht von Pultusk ist dem-
 nach einer der höhern unter den Chondriten und reiht sich denen von'Seres
 (Macedonien) 3,71, Lixna 3,66 (Rumler):; Blansko 3,70; Klein Wenden 3,7006;
-Oesel 3,668 und anderen an. — Da es, wie bereits oben bemerkt, unmöglich war,
+Oesel 3,668 und anderen an. --- Da es, wie bereits oben bemerkt, unmöglich war,
 durch Ausziehen mit dem Magneten die magnetischen Theile auch nur an-
 nähernd zu bestimmen, so musste zur Ermittlung der procentischen Menge
 des Nickeleisens ein anderer Weg eingeschlagen werden. Bei der grossen
@@ -436,8 +179,8 @@ magnetischen Theile (welche fast vollkommen rein von Eisen ausgesucht
 werden konnten), musste hierauf, als einer hinlänglich genauen Grundlage,
 . die Rechnung geführt werden können. Die gegebenen Bedingungen der
 Rechnung sind nun folgende: Die direkt bestimmte Menge des Schwefels
-= 1,52 pCt. ergibt den Gehalt an Magnetkies — 3,85 pCt., dessen specifi-
-sches Gewicht angenommen wird — 4,65. — Das specifische Gewicht des
+= 1,52 pCt. ergibt den Gehalt an Magnetkies --- 3,85 pCt., dessen specifi-
+sches Gewicht angenommen wird --- 4,65. --- Das specifische Gewicht des
 ganzen Meteoriten als Pulver gewogen = 3,782; das Gewicht der nicht
 magnetischen Theile (d. h. der Silicate und des Magnetkieses, welcher in
 den metoorischen Vorkommnissen bekanntlich nicht magnetisch ist) = 3,344.
@@ -483,7 +226,7 @@ sprechend 0,039 Nickel. Bei dieser Analyse konnte nicht eine Spur von
 Kupfer oder Zinn nachgewiesen werden. Sehen wir nun (der sogleich fol-
 genden Analyse entsprechend) das Nickeleisen als eine Verbindung von 1 At.
 Nickel und 14 At. Eisen an, so ergibt sich die Menge desselben = 0,559 Gr.
-oder — 13,8 pCt. des Meteoriten.
+oder --- 13,8 pCt. des Meteoriten.
 
 Die genaue Analyse eines Steins wie Pultusk ist eine schwierige, kaum voll-
 kommen zu lösende Aufgabe; man erwäge die schwierige Sonderung der mag-
@@ -493,7 +236,7 @@ welchem z. B. das Eisen vorhanden ist: als Nickeleisen, als Magnetkies, als
 
 Chromeisen, ala Oxydul ın den Magnesiasilicaten ; ausserdem hat sich selbst in
 den frischesten Stücken durch die ganze Masse hindurch ein sehr kleiner Theil
-des Nickeleisens bereits oxydirt, wie der braungefleckte Bruch erweist. —
+des Nickeleisens bereits oxydirt, wie der braungefleckte Bruch erweist. ---
 . Die Untersuchung erheischte namentlich folgende Analysen: des Nickeleisens,
 des unmagnetischen Theils, bei welchem Chromeisen, Magnetkies verbleiben,
 ferner eine gesonderte Behandlung des löslichen und unlöslichen Antheils.
@@ -555,7 +298,7 @@ Natron 1,56 0.40
 
 Eine Diskussion dieser Zusammensetzung wird ihre Stelle finden nach
 der unten folgenden Mittheilung der Analyse eines fast Nickeleisen freien
-Pultusker Steins. — Nach dem Vorgange von Gmelin für die Phonolithe
+Pultusker Steins. --- Nach dem Vorgange von Gmelin für die Phonolithe
 sonderte Berzelius zuerst die in C'hlorwasserstoffsäure löslichen von den
 unlöslichen Theilen der Meteoriten, um auf diese Weise bei Deutung der
 Silicate Anhaltspunkte zu erlangen. In Bezug auf die irdischen Gesteine
@@ -638,9 +381,9 @@ Abzug von Nickeleisen und Magnetkies berechneten (3,286).
 
 Das Gewicht des ungewöhnlichen Pultusk ist weit niedriger als dasder
 Chondrite, geringer noch als dasjenige des Steins von Chassigny (3.Octbr. 1815),
-— 83,55 — welcher wesentlich aus Olivin besteht, indess etwas schwerer als die
-Steine von Loutolax, Bialystok und Mässing — welche nach G. Rose ein Ge-
-menge von vorherrschendem Olivin mit Anorthit sind — und schwerer als die
+--- 83,55 --- welcher wesentlich aus Olivin besteht, indess etwas schwerer als die
+Steine von Loutolax, Bialystok und Mässing --- welche nach G. Rose ein Ge-
+menge von vorherrschendem Olivin mit Anorthit sind --- und schwerer als die
 Steine aus der Klasse des Eukrit (Juvinas, Stannern), welche ein Gemenge von
 Anorthit und Augit sind. Auf frischem Bruche stellt sich unser Stein als
 eine lichtgraulichweisse, feinkörnige, krystallinische Masse dar, durchzogen
@@ -745,7 +488,7 @@ Klasse der Chondrite. Der hypothetische meteorische Enstatit müsste in der
 Silicat-Verbindung in doppelter Menge vorhanden sein, wie der Olivin,
 dieses einzige bisher mit aller Bestimmtheit in den Chondriten nachgewie-
 sene Silieat. Deshalb erscheint die erstere jener beiden Combinationen als
-höchst unwahrscheinlich. —
+höchst unwahrscheinlich. ---
 
 Die zweite Combination, 38 Mol. Olivin + 1 Mol. Shepardit, hat sogleich
 den Vortheil, dass sie /« der Magnesia- (resp. der Eisenoxydul-)Menge dem
@@ -761,8 +504,8 @@ so bat die Annahme derselben Mineralien nur mit anderm Verhältnisie
 in den Steinen von Pultusk, ja wohl überhaupt verbreitet in den Chondriten,
 gewiss einen hohen Grad von Wahrscheinlichkeit.
 
-Die Meteoriten — nicht ganz unähnlich irdischen Gesteinen und doch in
-ihrer grossen Mehrzahl von ihnen s0 sehr verschieden — verrathen Bedingungen
+Die Meteoriten --- nicht ganz unähnlich irdischen Gesteinen und doch in
+ihrer grossen Mehrzahl von ihnen s0 sehr verschieden --- verrathen Bedingungen
 der (Giesteinsbildung, wie sie in der uns bekannten Erdrinde niemals verei-
 nigt waren. Jene kosmischen Körper, welche kein neues Element der Erde
 zuführten, zunı grössten ‘Theile aus irdischen Mineralien gemengt sind, leiten
@@ -771,7 +514,7 @@ eisernen Körpern erfüllten Räume des bewegungsreichen Sonnensystems.
 Wenn einerseits die Meteoriten zu beweisen scheinen, dass unser Planeten-
 system oder wenigstens eine gewisse Sphäre dieses Systems von gleichen
 Elementarstoffen erfüllt ist, ao erhalten wir andererseits durch jene wunder-
-baren Körper — seien sie nun uranfängliche Gebilde oder Trümmer eines
-zerbrochenen Planeten — vielleicht einen Fingerzeig in Bezug auf die Con-
+baren Körper --- seien sie nun uranfängliche Gebilde oder Trümmer eines
+zerbrochenen Planeten --- vielleicht einen Fingerzeig in Bezug auf die Con-
 stitution des uns ewig verborgenen Erdinnern, dessen hohe specifische
 Schwere noch unerklärt ist.
