@@ -75,58 +75,9 @@ In den Steinen von Pultusk finden sich die für die Chondrite charakteristischen
 
 Ausser den dunklen Kugeln gibt es in den Pultusker Steinen auch lichte, verschiedentlich gefärbte: lichtgrau, gelblich, weiss, bläulichweiss, bläulichgrau. Letztere beiden Farbentöne sehr selten. Gewöhnlich haben diese Kugeln eine anders gefärbte Peripherie, lichter oder dunkler. Ich beobachtete eine 1,5 Mm. grosse bläulichweisse Kugel mit grünlichweisser Hülle. Diese lichteren Kugeln haben keine deutliche Faserstruktur, wie jene dunklen, sie sind weniger hart, ohne den zähen Zusammenhalt jener. Während die dunklen Konkretionen auf der Bruchfläche des Steins entweder mit ihrer Wölbung hervorragend erscheinen, oder eine Höhlung zurückgelassen haben, so werden die lichten Kugeln vom Bruch stets durchrissen. Betrachtet man sorgsam eine angeschliffene Fläche, so ergibt sich, dass ein grosser Teil der feinkörnigen Grundmasse des Gesteins eine sphärolithische Struktur anzunehmen strebt. Es tritt dies auch besonders durch die kleinsten Partien des Nickeleisens hervor, welche häufig eine der Kreisform genäherte Lagerung zeigen. --- Schon oben wurde bemerkt, dass ich die dunklen Kugeln von Eisenhülle nicht umgeben sah. --- Die mineralogische Deutung dieser verschiedenartig gefärbten Kugeln ist begreiflicher Weise noch nicht möglich. Die meisten mögen einem individualisirten Mineral nicht zugehören, sondern lediglich sphärolithisch ausgebildete Grundmasse sein. Die gelblichweissen Kugeln, welche teils homogen, teils feinkörnig gemengt erscheinen, möchte ich für Olivin halten. Sie sind v. d. L. schwer schmelzbar. Die qualitative Analyse liess nur Kieselsäure, Eisenoxydul, Magnesia erkennen; durch Chlorwasserstoffsäure zersetzbar.
 
-In der lichtgrauen Grundmasse, welche sich einer eingehbenderen mine-
-ralogischen Diagnose entzieht, liegen nun ausser dem kugligen Gebilden
-zweierlei Silicate, gelbliche Körner und sehr kleine weisse Partikel. Die
-ersteren sind grösser und mit grosser Wahrscheinlichkeit für Olivin zu halten,
-wenngleich man nur selten regelmässige Begrenzungen sieht, welche man
-auf dies Mineral beziehen kann. Die weissen Partikelchen sind deutlich
-mit der Lupe wahrnehmbar, fettartig glänzend, mit etwas gewölbten Spal-
-tungsflächen;; in Bezug auf welch letztere, wie auch über ihre Krystallform
-ich Nichts zu ermitteln vermochte. Diese weissen Krystallkörner treten noch
-deutlicher hervor, wenn das Stück etwa 24 Stunden oder länger in Chlor-
-wasserstoffsäure gelegen hat. Als wahrscheinlichste Ansicht über die Natur
-des in Rede stohenden wesentlichen Gemengtheils der Pultusker Steine em-
-pfiehlt aich, denselben für identisch zu halten mit dem wesentlichen Bestand-
-theil Shepardit des Aörolithen von Bishopville (25. März 1843), des Chladnits
-(G. Rose). Die weissen perlmutterglänzenden, in Chlorwasserstoffsäure un-
-löslichen Krystallkörner des Bishopville bestehen nach der Analyse von
-Shepard aus: Kieselsäure 70,41; Magnesia 28,25; Natron 1,39. Diese Mi-
-schung entspricht sehr nahe einem nach der Formel 2MgO, 38i0, oder
-Mg, Sis OÖ, zusammengesetzten Silicate der Magnesia, welchem G. Rose
-den Namen Shepardit beigelegt hat. Eine Stütze für die angegebene Deu-
-tung jener krystallinischen Theile ergibt sich aus der chemischen Constitu-
-tion der Silicate unseres Steins, indem sich dieselbe durch ein Gemenge
-von Olivin und Shepardit annähernd wiedergeben lässt'). Es ist mir nicht
+In der lichtgrauen Grundmasse, welche sich einer eingehenderen mineralogischen Diagnose entzieht, liegen nun ausser den kugligen Gebilden zweierlei Silikate, gelbliche Körner und sehr kleine weisse Partikel. Die ersteren sind grösser und mit grosser Wahrscheinlichkeit für Olivin zu halten, wenngleich man nur selten regelmässige Begrenzungen sieht, welche man auf dies Mineral beziehen kann. Die weissen Partikelchen sind deutlich mit der Lupe wahrnehmbar, fettartig glänzend, mit etwas gewölbten Spaltungsflächen; in Bezug auf welch letztere, wie auch über ihre Krystallform ich Nichts zu ermitteln vermochte. Diese weissen Krystallkörner treten noch deutlicher hervor, wenn das Stück etwa 24 Stunden oder länger in Chlorwasserstoffsäure gelegen hat. Als wahrscheinlichste Ansicht über die Natur des in Rede stehenden wesentlichen Gemengteils der Pultusker Steine empfiehlt sich, denselben für identisch zu halten mit dem wesentlichen Bestandteil Shepardit des Aërolithen von Bishopville (25. März 1843), des Chladnits (G. Rose). Die weissen perlmutterglänzenden, in Chlorwasserstoffsäure unlöslichen Krystallkörner des Bishopville bestehen nach der Analyse von Shepard aus: Kieselsäure 70,41; Magnesia 28,25; Natron 1,39. Diese Mischung entspricht sehr nahe einem nach der Formel 2MgO, 3SiO₂ oder Mg₂Si₃O₈ zusammengesetzten Silikate der Magnesia, welchem G. Rose den Namen Shepardit beigelegt hat. Eine Stütze für die angegebene Deutung jener krystallinischen Teile ergibt sich aus der chemischen Konstitution der Silikate unseres Steins, indem sich dieselbe durch ein Gemenge von Olivin und Shepardit annähernd wiedergeben lässt.* Es ist mir nicht gelungen, andere Silikate als die aufgeführten Magnesia-Verbindungen in unseren Steinen nachzuweisen. K. v. Fritsch (Verh. d. k. k. geol. Reichsanst. Sitz. 3. März 1868) glaubt zwar mit Bestimmtheit Anorthit erkannt zu haben. Doch beruht dies wohl auf einem Irrtum. Wenn nämlich in einem Silikatgemenge, dessen Gehalt an Kalkerde höchstens 0,3 pZt. beträgt, überhaupt nur eine äusserst geringe Menge eines wesentlich kalkhaltigen Minerals vorhanden sein kann, so wird die Existenz des Anorthits ganz ausgeschlossen durch die Tatsache, dass in der durch warme Chlorwasserstoffsäure erhaltenen Lösung nicht eine Spur von Kalkerde zu erkennen ist; dieser Bestandteil vielmehr dem in der Säure unlöslichen oder schwer löslichen Anteil zugehört. Die von v. Fritsch an einigen Krystallkörnern unter dem Mikroskop wahrgenommene Streifung kann um so weniger für Anorthit oder überhaupt für einen triklinen Feldspat beweisen, da auch der Shepardit, d. h. jene weissen Körner des Bishopville, womit ich die weissen Partikel des Pultusk identifiziren möchte, eine sehr deutliche Streifung auf einer Spaltungsfläche zeigt.
 
-) Dasselbe lissse sich allerdings erreichen durch Berechnung einee Gemenges von Olivin und En-
-statit (MgO, BIO, oder Mg Si O, == Kieselsäure 59,71, Magnsein 40,39). Doch ist die Anwesenheit des
-Enstatite in Meteoriten bisher uoch nicht bewiesen. Was die weissen Krystalle in Bishoprille betrifft,
-so weichen die vorliegenden Analysen zwar schr von einander ab, doch scheint kein Grund vorhanden
-zu sein, dem neueren Analysen vou J.L. Smith mehr Rechnung zu tragen als den früheren, nahe über-
-einstmenden von Sartorius und Shepard, welche letsterem das reichlichste Material zum Anssuchen
-weiner Krystaliköener zur Verfügung stand. Auch ist zu erwägen, dass durch unvollkommene Sonderung
-dee sur Ansiyse bestimmten weissen Körner von der übrigen Steinmasse ein in Bezug auf den Kiesclsäure-
-Gehalt zu geringes Beseltat erhalten werden musste; daher der hohe in den Analysen von Sartorine
-(67,1 pOt. und Bhopard (70.4 pCt.) angeseigte Kieselsäure-Gehalt eine Gewähr für die Reinheit der un-
-
-
-gelungen, andere Silicate als die aufgeführten Magnesia -Verbindungen in
-unseren Steinen nachzuweisen. K. v. Fritsch (Verh. d. k.k. geol. Reichs-
-anst. Sitz. 3. März 1868) glaubt zwar mit Bestimmtheit Anorthit erkannt zu
-haben. Doch beruht dies wohl auf einem Irrthum. Wenn nämlich in einem
-Silicatgemenge, dessen Gehalt an Kalkerde höchstens 0,3 pCt. beträgt, über-
-haupt nur eine äusserst geringe Menge eines wesentlich kalkhaltigen Mine-
-rals vorhanden sein kann, so wird die Existenz des Anorthits ganz ausge-
-schlossen durch die T'hatsache, dass in der durch warme Chlorwasserstoffsäure
-erhaltenen Lösung nicht eine Spur von Kalkerde zu erkennen ist; dieser
-Bestandtheil vielmehr dem in der Säure unlöslichen oder schwer löslichen
-Antheil zugehört. Die von v. Fritsch an einigen Krystallkörnern unter
-dem Mikroskop wahrgenommene Streifung kann um so weniger für Anorthit
-oder überhaupt für einen triklinen Feldspath beweisen, da auch der Shepar-
-dit, d. h. jene weissen Körner des Bishopville, womit ich die weissen Par-
-tikel des Pultusk identificiren möchte, eine sehr deutliche Streifung auf einer
-Spaltungsfläche zeigt.
+*) Dasselbe liesse sich allerdings erreichen durch Berechnung eines Gemenges von Olivin und Enstatit (MgO, SiO₂ oder MgSiO₃ = Kieselsäure 59,71, Magnesia 40,29). Doch ist die Anwesenheit des Enstatits in Meteoriten bisher noch nicht bewiesen. Was die weissen Krystalle in Bishopville betrifft, so weichen die vorliegenden Analysen zwar sehr von einander ab, doch scheint kein Grund vorhanden zu sein, den neueren Analysen von J. L. Smith mehr Rechnung zu tragen als den früheren, nahe übereinstimmenden von Sartorius und Shepard, welche letzterem das reichlichste Material zum Aussuchen reiner Krystallkörner zur Verfügung stand. Auch ist zu erwägen, dass durch unvollkommene Sonderung der sur Analyse bestimmten weissen Körner von der übrigen Steinmasse ein in Bezug auf den Kieselsäure-Gehalt zu geringes Resultat erhalten werden musste; daher der hohe in den Analysen von Sartorius (67,1 pZt.) und Shepard (70,4 pZt.) angezeigte Kieselsäure-Gehalt eine Gewähr für die Reinheit der untersuchten Substanz zu geben scheint. Rammelsberg, dem wir gleichfalls eine Analyse des vorwaltenden Gemengteils von Bishopville verdanken, gewann die Überzeugung, dass er ein Gemenge analysirt habe. Die gleiche Annahme ist gewiss auch in Bezug auf die Analysen von Smith gestattet; und es möchte kein Grund vorliegen von der Ansicht G. Roses abzugehen, "dass in dem Chladnit (Stein von Bishopville) ein eigentümliches Mineral wie der Shepardit vorkomme und neben ihm noch ein anderes Tonerde haltiges Minerale." Auf Kenngotts wiederholte Behauptung (Übers. Min.-Forsch. 1862-65), dass die weissen Krystallkörner von Bishopville, Roses Shepardit, Enstatit seien, ist zu entgegnen, dass die mineralogischen Eigenschaften jener Körner durchaus nicht diejenigen des Enstatits sind. In den Meteoriten ist Enstatit überhaupt noch niemals und Augit nicht in der grossen Klasse der Chondriten beobachtet worden, eine Tatsache, deren Bedeutung nicht berührt wird durch die Mitteilungen Daubrées, dass als Schmelzprodukte sowohl der Chondrite als des Steins von Bishopville Olivin und Enstatit erscheinen (Compt. rend. Séance 29. Janv. 1866). Bei diesen interessanten Versuchen wurde der Olivin (dieses häufigste unter allen aus Schmelzfluss sich bildenden Mineralien) krystallographisch bestimmt, während in Betreff der prismes à section rectangulaire des Enstatits weder die Form noch die quantitative Mischung ermittelt werden konnte.
 
 Chromeisenerz ist in sehr kleinen schwarzen, unmagnetischen Körnchen
 nur in geringer Menge vorhanden. Es bleibt nach Behandlung des Meteori-
@@ -136,23 +87,6 @@ bei der Kieselsäure, derselben eine schwachbräunliche Farbe verleihend.
 Um die Kieselsäure rein zu erhalten, muss mit einem Gemenge von Soda
 und Salpeter geschmolzen werden. Auf diese Weise wurden in der Lösung
 0,24 pCt. Chromoxyd, berechnet auf den nicht magnetischen Antheil, bestimmt.
-tersuchten Substanz zu geben scheint. Rammelsberg, dem wir gleichfalls eine Analyse des vorwal-
-tenden Gemengtheils von Bishoprville verdanken, gewann die Ucberzeugung, dass er ein Gemenge analysirt
-babe. Die gleiche Annahme ist gewiss auch in Besug auf die Analysen von Smith geststtet; und os
-möchte kein Grund vorliegen von der Ansicht G. Rose's abzugeben, »>dass in dem Chladoit (Stein von
-Bishopville) ein eigenthümliches Mineral wie der Shepardit vorkomme und neben ihm noch ein anderes
-Thonerde haltiges Minerale. Auf Kenngott's wiederholte Behauptung (Uebers. Min.-Forssh. 1863-68),
-dass die weissen Krystallkörner von Bishoprille, Rose's Shepardit, Enstatit seien, ist zu entgegusn, dass
-die mineralogischen Eigenschaften jener Körner durchaus nicht diejenigen des Enstatits sind. In den
-Mestsoriten ist Enstatit überhaupt noch niemals und Augit nicht in der grossen Clamse der Uhondriten
-beobachtet worden, eine Thatssohe, deren Bedeutung nicht berührt wird durch die Mittheilungen Dau-
-bro6e's, dass als Schmelsprodukte sowohl der Chondrite als des Steins von Bishoprille Olivin und Enstatit -
-erscheinen (Compt. rend. Seance 29, Janv. 1866). Bei diesen interessanten Versuchen wurde der Olivia
-(diesen häufigste unter allen aus Schmelsfiuss sich bildenden Mineralien) krystallogrsphisch bestimmt,
-wihrend in Betreff der prisınes & seotion reotangulaire des Enstatita weder die Form noch die quastile-
-tive Mischung ermittelt werden konnte. oo .
-
-
 
 Das specifische Gewicht von sechs kleinen, ganz umrindeten Steinen
 ergab sich wie folgt:
@@ -187,12 +121,11 @@ den metoorischen Vorkommnissen bekanntlich nicht magnetisch ist) = 3,344.
 Das specifische Gewicht des Nickeleisens wird angenommen = 7,7'). Die
 äusserst geringe Menge des Chromeisens können wir hier unberücksichtigt
 lassen. So ergibt sich das Resultat, dass unser Meteorit enthält:
+
 3) Das Gewicht der sur Analyse ausgesuchten Nickeleisen-Körner betrug allerdings nar 7,017 (s. oben),
 Da aber diessiben nicht vollkommen rein, sondern mit einer geringen Menge von Silicaten und Magnet-
 kiös verunteinigt waren, so wurde das Gewicht 7,7 (welches dem Gewichte des Eisens von Bohumilite,
 ven Breunsa, Seellsgen, Lenarto eto. entspricht) in die obige Rechnung eingeführt.
-ı q
-
 
 Nickeleisen 10,06 pCt. Spoc.-Gew. = 7,7
 Magnetkies 3,86 >» » » =465
