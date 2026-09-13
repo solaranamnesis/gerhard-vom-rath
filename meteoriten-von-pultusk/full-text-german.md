@@ -40,55 +40,11 @@ Früher war man wohl geneigt, ringsumrindete Meteoriten für komische Individuen
 
 Einen seltsam geformten Stein, bis auf kleine Beschädigungen von einer gleichartigen schwarzen Rinde umschlossen, stellt Fig. 5 in halber Grösse dar. Die in Fig. _a_ zur Rechten verkürzte Fläche erscheint in _b_ nach vorne gewandt, um ihre charakteristischen Vertiefungen zu zeigen. Dieser Meteorit trägt auf der in 5_a_ nach vorne gewandten Fläche eine ganz flache schmale Wulst, welche von einem äusserst dünnen bräunlichen Schmelz bedeckt ist. Entfernt man diesen letztern, so zeigt sich darunter Nickeleisen. Solche niedere Wülste, welche sich zuweilen gleich Schnüren um den Stein ziehen, verraten schon an der Oberfläche das Vorhandensein von mit Eisenlamellen bedeckten Ablösungen im Innern des Meteoriten. Auch der grössere der beiden Steine von Gütersloh (17. April 1851) im Berliner Kabinet zeigt eine solche gestreckte Eisenpartie. Dieser westphälische Stein besitzt überhaupt einen fast identischen Oberflächen-Charakter wie die Pultusker Meteoriten: er ist Fragment eines Sphäroids, ist teils ebenflächig, teils von (mit rundlichen Vertiefungen versehenen) Bruchflächen begrenzt, doch gleichartig umrindet.
 
-Der Fig. 4a, 5, c in natürlicher Grösse abgebildete ganzumrindete Stein
-von trapezoidischem Umriss lässt in ausgezeichnetster Weise den Unterschied
-zwischen Brust- (a) und Rückenseite (5) erkennen. Jene ist regelmässig
-gewölbt und entspricht offenbar einem Theile der kosmischen Gestalt. Die
-Rückenseite ist durch Bruchflächen gebildet, welche uneben, kleinhöckerig
-von dünnem glänzendem Schmelz bedeckt sind. Vom Scheitel der Oberseite
-ziehen, besonders deutlich auf dem erhaltenen Theile der Flanken, Fig. 4c,
-sichtbar, feine Schmelzrinden-Wülste herab. Die reichlichere Schmelzrinde der
-Brust legt sich in einem zusammenhängenden erhabenen Saume über den
-dünnen Schmelz der Bruchfläche des Rückens hinweg, 45 linke. Auch bei
-diesem merkwürdigen Meteoriten bedeckt schwarzer Schmelz den rothbrau-
-nen und ist über den letzteren auf den Flanken (genau wie bei dem Steine
-Fig. 2) hingespritzt.
+Der Fig. 4_a_, _b_, _c_ in natürlicher Grösse abgebildete ganzumrindete Stein von trapezoidischem Umriss lässt in ausgezeichnetster Weise den Unterschied zwischen Brust- (_a_) und Rückenseite (_b_) erkennen. Jene ist regelmässig gewölbt und entspricht offenbar einem Teile der kosmischen Gestalt. Die Rückenseite ist durch Bruchflächen gebildet, welche uneben, kleinhöckerig von dünnem glänzendem Schmelz bedeckt sind. Vom Scheitel der Oberseite ziehen, besonders deutlich auf dem erhaltenen Teile der Flanken, Fig. 4_c_, sichtbar, feine Schmelzrinden-Wülste herab. Die reichlichere Schmelzrinde der Brust legt sich in einem zusammenhängenden erhabenen Saume über den dünnen Schmelz der Bruchfläche des Rückens hinweg, 4_b_ links. Auch bei diesem merkwürdigen Meteoriten bedeckt schwarzer Schmelz den rotbraunen und ist über den letzteren auf den Flanken (genau wie bei dem Steine Fig. 2) hingespritzt.
 
-Während die bisher betrachteten Steine wenigstens theilweise noch
-Spuren ihrer kosmischen Form erkennen liessen, ist dies bei dem vollständig
-umrindeten Meteoriten Fig. 6a und db nicht mehr der Fall. Derselbe hat
-eine meisselförmige Gestalt mit einer fast schneidigen Kante und lässt ältere
-und jüngere Bruchflächen unterscheiden. Die in a nach vorne gewandten
-Flächen gehören einer früheren, die in 5 sichtbaren Flächen einer späteren
-Zertrümmerung an. Jene sind durch die Schmelzung mehr geebnet, letztere
-kaum angeschmolzen und kleinhöckerig. In Fig.66 ist ein grosses aus dem
-Stein hervorragendes Nickeleisenkorn sichtbar. Solche unregelmässig gerun-
-dete grössere Eisenkörner finden sich nicht ganz selten bei Pultusk.
+Während die bisher betrachteten Steine wenigstens teilweise noch Spuren ihrer kosmischen Form erkennen liessen, ist dies bei dem vollständig umrindeten Meteoriten Fig. 6_a_ und _b_ nicht mehr der Fall. Derselbe hat eine meisselförmige Gestalt mit einer fast schneidigen Kante und lässt ältere und jüngere Bruchflächen unterscheiden. Die in _a_ nach vorne gewandten Flächen gehören einer früheren, die in _b_ sichtbaren Flächen einer späteren Zertrümmerung an. Jene sind durch die Schmelzung mehr geebnet, letztere kaum angeschmolzen und kleinhöckerig. In Fig. 6_b_ ist ein grosses aus dem Stein hervorragendes Nickeleisenkorn sichtbar. Solche unregelmässig gerundete grössere Eisenkörner finden sich nicht ganz selten bei Pultusk.
 
-Die Betrachtung der Rückenseite einiger Steine, Figg.7 und 8, ist geeig-
-net, die durch das Studium der Form und Schmelzrinde gewonnene Einsicht
-in die Bewegung der Meteoriten zu erweitern und zugleich v. Haidinger's
-interessante Beobachtung an einem Stannern zu bestätigen (Sitz.-Ber. d. k.
-Akad. 1862, 22. Mai). Der kleine Stein Fig. 7 bietet uns in a seine geglät-
-tete, zu einer kielförmigen Wölbung gestaltete, durch radiale Schmelzlinien
-bezeichnete Brustseite dar, während 5 den durch drei zusammenstossende
-Bruchflächen gebildeten Rücken darstellt. Auf dieser Seite haftet nun durch
-Schmelz verkittet ein Haufwerk kleiner und kleinster Meteoritenkörner, um-
-rindet oder wohl auch ganz geschmolzen. Dass der Schwarm von Pultusk
-zertrümmerte bis zur Kleinheit von Sandkörnern oder gar Staub, würde uns
-vielleicht verborgen geblieben sein, wenn nicht einige grössere Steine auf
-ihrer Rückenseite fein zertheilte Meteoritenmasse gesammelt und mitgeführt
-hätten. Die von der Brust des Steins abschmilzenden oder von den Flanken
-losbröckelnden Theile konnten, wenn sie in die Luftleere hinter dem plane-
-tarisch bewegten, mit seiner Brust gegen den stets wachsenden Atmosphären-
-druck ankämpfenden Aerolithen gelangten, eine grössere Geschwindigkeit
-als der Hauptkörper annehmen und auf dessen Hinterseite, in der Feuerkugel
-erglähend, sich wieder mit ihm vereinigen. Auch der Stein Fig. 8 bietet
-auf seiner oonkav verbrochenen Rückseite einige angeschmolzene Meteoriten-
-Körner dar. Noch an einem dritten, grösseren Steine von Pultusk in der
-Krantz'schen Sammlung (in den drei Dimensionen messend 85, 60, 45 Mm.),
-dessen Schmelzrinde ' Mm. erreicht, haftet auf der Rückenseite ein durch
-Schmelzmasse verkittetes Conglomerat kleiner Meteorkörner.
+Die Betrachtung der Rückenseite einiger Steine, Figg. 7 und 8, ist geeignet, die durch das Studium der Form und Schmelzrinde gewonnene Einsicht in die Bewegung der Meteoriten zu erweitern und zugleich v. Haidingers interessante Beobachtung an einem Stannern zu bestätigen (Sitz.-Ber. d. k. Akad. 1862, 22. Mai). Der kleine Stein Fig. 7 bietet uns in _a_ seine geglättete, zu einer kielförmigen Wölbung gestaltete, durch radiale Schmelzlinien bezeichnete Brustseite dar, während _b_ den durch drei zusammenstossende Bruchflächen gebildeten Rücken darstellt. Auf dieser Seite haftet nun durch Schmelz verkittet ein Haufwerk kleiner und kleinster Meteoritenkörner, umrindet oder wohl auch ganz geschmolzen. Dass der Schwarm von Pultusk zertrümmerte bis zur Kleinheit von Sandkörnern oder gar Staub, würde uns vielleicht verborgen geblieben sein, wenn nicht einige grössere Steine auf ihrer Rückenseite fein zerteilte Meteoritenmasse gesammelt und mitgeführt hätten. Die von der Brust des Steins abschmilzenden oder von den Flanken losbröckelnden Teile konnten, wenn sie in die Luftleere hinter dem planetarisch bewegten, mit seiner Brust gegen den stets wachsenden Atmosphärendruck ankämpfenden Aerolithen gelangten, eine grössere Geschwindigkeit als der Hauptkörper annehmen und auf dessen Hinterseite, in der Feuerkugel erglühend, sich wieder mit ihm vereinigen. Auch der Stein Fig. 8 bietet auf seiner conkav verbrochenen Rückseite einige angeschmolzene Meteoriten-Körner dar. Noch an einem dritten, grösseren Steine von Pultusk in der Krantz'schen Sammlung (in den drei Dimensionen messend 85, 60, 45 Mm.), dessen Schmelzrinde 1/2 Mm. erreicht, haftet auf der Rückenseite ein durch Schmelzmasse verkittetes Konglomerat kleiner Meteorkörner.
 
 Dem, was bereits über die Rinde unserer Steine gesagt wurde, möchte
 nur noch hinzuzufügen sein, dass dieselbe sich in keiner Weise von derjeni-
