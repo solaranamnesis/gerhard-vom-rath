@@ -149,225 +149,85 @@ Keine Spur von Kali konnte ich bei der Flusssäure-Analyse durch Platinchlorid n
 | Natron       | 1,56  | 0,40       |
 | ~            | 100,00| ~          |
 
-Eine Diskussion dieser Zusammensetzung wird ihre Stelle finden nach
-der unten folgenden Mittheilung der Analyse eines fast Nickeleisen freien
-Pultusker Steins. --- Nach dem Vorgange von Gmelin für die Phonolithe
-sonderte Berzelius zuerst die in C'hlorwasserstoffsäure löslichen von den
-unlöslichen Theilen der Meteoriten, um auf diese Weise bei Deutung der
-Silicate Anhaltspunkte zu erlangen. In Bezug auf die irdischen Gesteine
-bat man schon seit einiger Zeit diesen wenig fördernden Weg verlassen.
-Wie wenig derselbe zum Ziele, der Bestimmung der konstituirenden Mine-
-ralien, führte, erkennt man durch Vergleichung der neueren mikroskopischen
-Forschung mit den auf die "gesonderte Analyse" gegründeten Folgerungen.
-In Hinsicht der Meteoriten hat man an dem Werth dieser Behandlung mit
-Chlorwasserstoffsäure und gesonderten Analyse der löslichen und der unlös-
-lichen Theile noch länger festgehalten, ohne indess auf diesem Wege zu
-annehmbaren Schlüssen zu gelangen. Während die lösliche Hälfte der
-Silicate mehr oder weniger der Olivin-Mischung entspricht, gelingt es niemals,
-eine wahrscheinliche Annahme zur Erklärung der Mischung der unlöslichen
-Hälfte zu machen. Leueit, Oligoklas, Labrador, Hornblende, Augit, Wolla-
-stonit u. a. Mineralien wurden zur Erklärung dieser letzteren Gesteins-
-Hälfte herangezogen, obgleich sie niemals in den Chondriten beobachtet
-worden sind. Offenbar scheidet die Chlorwasserstoffsäure die Silicate nicht
-genügend: sie greift alle an und zersetzt sie nicht vollständig. Trotzdem
-habe ich es nicht unterlassen wollen das relative Verhältniss des löslichen
+Eine Diskussion dieser Zusammensetzung wird ihre Stelle finden nach der unten folgenden Mitteilung der Analyse eines fast Nickeleisen freien Pultusker Steins. --- Nach dem Vorgange von Gmelin für die Phonolithe sonderte Berzelius zuerst die in Chlorwasserstoffsäure löslichen von den unlöslichen Teilen der Meteoriten, um auf diese Weise bei Deutung der Silikate Anhaltspunkte zu erlangen. In Bezug auf die irdischen Gesteine hat man schon seit einiger Zeit diesen wenig fördernden Weg verlassen. Wie wenig derselbe zum Ziele, der Bestimmung der konstituirenden Mineralien, führte, erkennt man durch Vergleichung der neueren mikroskopischen Forschung mit den auf die "gesonderte Analyse" gegründeten Folgerungen. In Hinsicht der Meteoriten hat man an dem Wert dieser Behandlung mit Chlorwasserstoffsäure und gesonderten Analyse der löslichen und der unlöslichen Teile noch länger festgehalten, ohne indess auf diesem Wege zu annehmbaren Schlüssen zu gelangen. Während die lösliche Hälfte der Silikate mehr oder weniger der Olivin-Mischung entspricht, gelingt es niemals, eine wahrscheinliche Annahme zur Erklärung der Mischung der unlöslichen Hälfte zu machen. Leucit, Oligoklas, Labrador, Hornblende, Augit, Wollastonit u. a. Mineralien wurden zur Erklärung dieser letzteren Gesteins-Hälfte herangezogen, obgleich sie niemals in den Chondriten beobachtet worden sind. Offenbar scheidet die Chlorwasserstoffsäure die Silikate nicht genügend: sie greift alle an und zersetzt sie nicht vollständig. Trotzdem habe ich es nicht unterlassen wollen das relative Verhältniss des löslichen und unlöslichen Anteils und die Zusammensetzung des ersteren zu bestimmen, woraus sich die Mischung des unlöslichen leicht berechnen lässt. Von dem Nickeleisen-freien Meteoritenpulver (24 Stunden mit kalter, nur zuletzt zum Zwecke des Abdampfens erwärmter Chlorwasserstoffsäure behandelt) sind
 
-1) Hr. Dr. Bettondorf hatte die Güte den Pultusker Meteoriten such im Speotral-Apparat su
-untersuchen : »0,02 Gr. fein gepulverte Substanz wurden mit reiner Flusssäure behandelt und das
-reeultirende Pulver vor einem kleinen Bunsen'schen Spektrometer analysirt. Die Natriumlinie trat sehr
-bell auf und war nach 5 Minuten langem Glühen der Perie noch sichtber. Von Zeit zu Zeit blitgte
-Calcium # auf, Calcium « war nicht zu seben. Von Kalium-Linien nicht eine Bpur.«
+löslich 47,16 pZt. bestehend aus Magnetkies und Silikat  
+unlöslich 52,84 pZt. bestehend aus Chromeisen und Silikat.
 
+*) Hr. Dr. Bettendorf hatte die Güte den Pultusker Meteoriten auch im Spektral-Apparat zu untersuchen: "0,02 Gr. fein gepulverte Substanz wurden mit reiner Flusssäure behandelt und das resultirende Pulver vor einem kleinen Bunsen'schen Spektrometer analysirt. Die Natriumlinie trat sehr hell auf und war nach 5 Minuten langem Glühen der Perle noch sichtbar. Von Zeit zu Zeit blitzte Calcium β auf, Calcium α war nicht zu sehen. Von Kalium-Linien nicht eine Spur."
 
-und unlöslichen Antheils und die Zusammensetzung des ersteren zu bestim-
-men, woraus sich die Mischung des unlöslichen leicht berechnen lässt. Von
-dem Nickeleisen-freien Meteoritenpulver (24 Stunden mit kalter, nur zuletzt
-zum Zwecke des Abdampfens erwärmter Chlorwasserstofisäure behandelt) sind
-löslich 47,16 pCt. bestehend aus Magnetkies und Silicat
-unlöslich 52.84 » » » Chromeisen und Silicat.
-Die Analyse des löslichen Theils ergab
-Schwefel 31 oder nach Abzug des Magnetkiesen
-Eisen 48 reducirt auf 100:
-Kieselsäure 32.5 36,4 Ox. = 18,88
-Thonerde 0,6 0,7 0,83
-Kalkerde 0.0 0,0
-Magnesia 35.8 89.0 15,60
-nee Mn of 22,8 29 8.68
-96 100,0.
-Die unlöslichen Silicate berechnen sich nun unter Zugrundelegung der
-beiden vorstehenden auf 100 reducirten Analysen, sowie der ermittelten
-Zusammensetzung des unmagnetischen Theils (0,3 Chromeisen, 3,7 Magnet-
-kies, 43,5 lösliche, 52,5 unlösliche Silieate) wie folgt:
-Kieselsänre 60,1 Ox. = 82,05
-Thonerde 17 0,79
-Kalkerde 0,6 0,17
-Magnesia 4.8 9,92
-Eisenoxydul
-it weni MnOS 100 3.22
-Natron 2,8 0.72
-100.00.
+Die Analyse des löslichen Teils ergab
 
-Mehr ale 1200 Pultusker Steine, welche mir zur Untersuchung vorlagen,
-erwiesen sich von wesentlich gleicher Art, mit gleicher, durch vorragendes
-Niokeleisen höckeriger Schmelzrinde bedeckt, von nicht sehr verschiedenem
-specifischem Gewichte. Nur ein einziger Stein aus jener grossen Zahl bil-
-dete von jener Gleichartigkeit eine merkwürdige Ausnahme, indem er sich
-schon durch seine Rinde, mehr noch durch die Beschaffenheit seiner Masse
-unterschied. Die Verschiedenartigkeit dieses einzelnen Steins vermehrt die
-Beweise, dass ein Steinregen wie Pultusk auf einen Schwarm kosmischer
-Körper deutet und nicht durch Zertrümmerung eines Asteroids in der Erd-
-atmosphäre sich erklärt,
+| ~                         | ~    | oder nach Abzug des | Magnetkieses reduzirt auf 100: |
+|---------------------------|------|---------------------|--------------------------------|
+| Schwefel                  | 3,1  |                     |                                |
+| Eisen                     | 4,8  |                     |                                |
+| Kieselsäure               | 32,5 | 35,4                | Ox. = 18,88                    |
+| Tonerde                   | 0,6  | 0,7                 | 0,33                           |
+| Kalkerde                  | 0,0  | 0,0                 |                                |
+| Magnesia                  | 35,8 | 39,0                | 15,60                          |
+| Eisenoxydul mit wenig MnO | 22,8 | 24,9                | 5,53                           |
+| ~                         | 99,6 | 100,00.             | ~                              |
 
+Die unlöslichen Silikate berechnen sich nun unter Zugrundelegung der beiden vorstehenden auf 100 reduzirten Analysen, sowie der ermittelten Zusammensetzung des unmagnetischen Teils (0,3 Chromeisen, 3,7 Magnetkies, 43,5 lösliche, 52,5 unlösliche Silikate) wie folgt:
 
+|                           |         |             |
+|---------------------------|---------|-------------|
+| Kieselsäure               | 60,1    | Ox. = 32,05 |
+| Tonerde                   | 1,7     | 0,79        |
+| Kalkerde                  | 0,6     | 0,17        |
+| Magnesia                  | 24,8    | 9,92        |
+| Eisenoxydul mit wenig MnO | 10,0    | 2,22        |
+| Natron                    | 2,8     | 0,72        |
+| ~                         | 100,00. | ~           |
 
+Mehr als 1200 Pultusker Steine, welche mir zur Untersuchung vorlagen, erwiesen sich von wesentlich gleicher Art, mit gleicher, durch vorragendes Nickeleisen höckeriger Schmelzrinde bedeckt, von nicht sehr verschiedenem spezifischem Gewichte. Nur ein einziger Stein aus jener grossen Zahl bildete von jener Gleichartigkeit eine merkwürdige Ausnahme, indem er sich schon durch seine Rinde, mehr noch durch die Beschaffenheit seiner Masse unterschied. Die Verschiedenartigkeit dieses einzelnen Steins vermehrt die Beweise, dass ein Steinregen wie Pultusk auf einen Schwarm kosmischer Körper deutet und nicht durch Zertrümmerung eines Asteroids in der Erdatmosphäre sich erklärt.
 
-Der etwa 3 Decim. grosse, ein abgeplattetes Sphäroid bildende 18,461 Gr.
-schwere Stein besitzt eine schwarze Schmelzrinde, welche im Vergleiche zu
-derjenigen der normalen Pultusker Steine glänzender, schaumiger ist, durch
-vorragende Eisenkörner nicht warzig erscheint, demgemäss einen vollkom-
-meneren Schmelzfluss erreichte, der sich in sehr deutlichen Schmelzrippen
-offenbart. Das specifische Gewicht des ganz umrindeten planetarischen
-Körpers = 3,236 (bei 17'° C.); kleiner Bruchstücke von Schmelzrinde be-
-freit = 3,263 (bei 20°C.). Letzteres Gewicht stimmt also beinahe ganz über-
-ein mit jenem, welches wir oben für die Silicate des normalen Pultusk nach
-Abzug von Nickeleisen und Magnetkies berechneten (3,286).
+Der etwa 3 Decim. grosse, ein abgeplattetes Sphäroid bildende 18,461 Gr. schwere Stein besitzt eine schwarze Schmelzrinde, welche im Vergleiche zu derjenigen der normalen Pultusker Steine glänzender, schaumiger ist, durch vorragende Eisenkörner nicht warzig erscheint, demgemäss einen vollkommeneren Schmelzfluss erreichte, der sich in sehr deutlichen Schmelzrippen offenbart. Das spezifische Gewicht des ganz umrindeten planetarischen Körpers = 3,236 (bei 17 1/2° C.); kleiner Bruchstücke von Schmelzrinde befreit = 3,263 (bei 20° C.). Letzteres Gewicht stimmt also beinahe ganz überein mit jenem, welches wir oben für die Silikate des normalen Pultusk nach Abzug von Nickeleisen und Magnetkies berechneten (3,286).
 
-Das Gewicht des ungewöhnlichen Pultusk ist weit niedriger als dasder
-Chondrite, geringer noch als dasjenige des Steins von Chassigny (3.Octbr. 1815),
---- 83,55 --- welcher wesentlich aus Olivin besteht, indess etwas schwerer als die
-Steine von Loutolax, Bialystok und Mässing --- welche nach G. Rose ein Ge-
-menge von vorherrschendem Olivin mit Anorthit sind --- und schwerer als die
-Steine aus der Klasse des Eukrit (Juvinas, Stannern), welche ein Gemenge von
-Anorthit und Augit sind. Auf frischem Bruche stellt sich unser Stein als
-eine lichtgraulichweisse, feinkörnige, krystallinische Masse dar, durchzogen
-von vielen feinen Schmelzlinien und -adern, welche deutlich von der Rinde aus-
-laufen. Nickeleisen fehlt nicht ganz, in vereinzelten kleinen runden Körnchen,
-namentlich auf der geschliffenen Fläche zu erkennen. Sehr selten finden
-sich äusserst kleine, glänzende, gelbe krystallinische Täfelchen, welche mög-
-licher Weise dasselbe sind wie die kleinen, "strohgelben tafelartigen Kry-
-stalle" im Juvinas. Der abnorme Pultusk enthält keine Kugeln, weder
-dunkle noch lichte, sodass die Bezeichnung Chondrit für denselben nicht
-im engeren Sinne zutrifft; die meiste Aehnlichkeit besteht mit Chassieny
-(Langres). Doch zeigt letzterer eine mehr grünlichgelbe, ins Graue neigende
-Farbe, deutlicheres Korn, höberes Gewicht und demgemäss eine wesentlich
-verschiedene Zusammensetzung. Ohne Rücksicht auf alle übrigen Pultusker
-Steine und ohne Kenntnisse der chemischen Zusammensetzung unseres abnor-
-men Steins würde man denselben gewiss zur Klasse des Chassignit's stellen,
-welche nur jenen einzigen merkwürdigen Stein enthält. Die Analyse weist
-indess nach, dass der ungewöhnliche Pultusk in seiner Mischung nicht we-
-sentlich verschieden ist von den Silicaten der übrigen Pultusker Steine nach
-Abzug des Nickeleisens und des Magnetkies.
-
+Das Gewicht des ungewöhnlichen Pultusk ist weit niedriger als das der Chondrite, geringer noch als dasjenige des Steins von Chassigny (3. Oktbr. 1815), --- 3,55 --- welcher wesentlich aus Olivin besteht, indess etwas schwerer als die Steine von Loutolax, Bialystok und Mässing --- welche nach G. Rose ein Gemenge von vorherrschendem Olivin mit Anorthit sind --- und schwerer als die Steine aus der Klasse des Eukrit (Juvinas, Stannern), welche ein Gemenge von Anorthit und Augit sind. Auf frischem Bruche stellt sich unser Stein als eine lichtgraulichweisse, feinkörnige, krystallinische Masse dar, durchzogen von vielen feinen Schmelzlinien und -adern, welche deutlich von der Rinde auslaufen. Nickeleisen fehlt nicht ganz, in vereinzelten kleinen runden Körnchen, namentlich auf der geschliffenen Fläche zu erkennen. Sehr selten finden sich äusserst kleine, glänzende, gelbe krystallinische Täfelchen, welche möglicher Weise dasselbe sind wie die kleinen, "strohgelben tafelartigen Krystalle" im Juvinas. Der abnorme Pultusk enthält keine Kugeln, weder dunkle noch lichte, sodass die Bezeichnung Chondrit für denselben nicht im engeren Sinne zutrifft; die meiste Ähnlichkeit besteht mit Chassigny (Langres). Doch zeigt letzterer eine mehr grünlichgelbe, ins Graue neigende Farbe, deutlicheres Korn, höheres Gewicht und demgemäss eine wesentlich verschiedene Zusammensetzung. Ohne Rücksicht auf alle übrigen Pultusker Steine und ohne Kenntniss der chemischen Zusammensetzung unseres abnormen Steins würde man denselben gewiss zur Klasse des Chassignits stellen, welche nur jenen einzigen merkwürdigen Stein enthält. Die Analyse weist indess nach, dass der ungewöhnliche Pultusk in seiner Mischung nicht wesentlich verschieden ist von den Silikaten der übrigen Pultusker Steine nach Abzug des Nickeleisens und des Magnetkies.
 
 Das Nickeleisen, welches nicht in zackigen Partien, sondern in runden
 Körnchen vorhanden ist, sich deshalb mit dem Magneten bestimmen liess,
-beträgt 1,03 pCt. vom Gewichte des Steins. Dieser zeigt nach Abzug des
+beträgt 1,03 pZt. vom Gewichte des Steins. Dieser zeigt nach Abzug des
 Nickeleisens folgende Mischung:
 
-hwefel i ‚06
-ET ni
-Kieselsäure 47,58 0Ox. = 25,87
-Thonerde 1,88 0,88
-Magnesia 81,66 12,62
-Kalkerde 0,00
-Eisenoxydul 16,21 3,60
-Alkalien (Verlust)‘) 2.65
+|                       |       |             |
+|-----------------------|-------|-------------|
+| Schwefel (Magnetkies) | 0,05  |             |
+| Eisen (Magnetkies)    | 0,08  |             |
+| Kieselsäure           | 47,58 | Ox. = 25,37 |
+| Tonerde               | 1,88  | 0,88        |
+| Magnesia              | 31,55 | 12,62       |
+| Kalkerde              | 0,00  |             |
+| Eisenoxydul           | 16,21 | 3,60        |
+| Alkalien (Verlust)*   | 2,65  |             |
+| ~                     | 100,00|             |
 
-100.00
+*) "Die Natriumlinie dauernd glänzend. Calcium β nur unbestimmt. Kalium gar nicht vorhanden." Dr. Bettendorf.
 
-Obgleich unser Stein fast frei von Nickeleisen ist, so stimmt seine Mi-
-schung dennoch nicht überein mit irgend einem der eisenarmen oder eisen-
-freien Aerolithen, Loutolax, der Typus des Howardits enthält nur 37,4 pCt.
-Kieselsäure, Chassigny (nach Damour, Coinpt. rend. 1862 t.4 p. 591) nur
-36,2; Shalka (der Typus des Shalkits) hingegen 57,6 Kieselsäure; für Bis-
-hopville (Chladnit) schwanken die Angaben des Gehalte an Kieselsäure
-zwischen 70,4 Shepard und 57,5 Rammelsberg. Mit dem Eukrit von
-Juvinas, dessen Kieselsäure-Gehalt zwar 48,3, also nahe wie in obiger Ana-
-lyse, lässt sich unser abnormer Pultusk nicht vergleichen, wie schon das
-Fehlen der Kalkerde und die sehr geringe Menge der Thonerde erweist.
-Obgleich fast ohne Nickeleisen und ohne Kugelbildung können wir den un-
-tersuchten Stein doch nur zu den Chondriten stellen.
+Obgleich unser Stein fast frei von Nickeleisen ist, so stimmt seine Mischung dennoch nicht überein mit irgend einem der eisenarmen oder eisenfreien Aerolithen, Loutolax, der Typus des Howardits enthält nur 37,4 pZt. Kieselsäure, Chassigny (nach Damour, Compt. rend. 1862 t. 4 p. 591) nur 35,2; Shalka (der Typus des Shalkits) hingegen 57,6 Kieselsäure; für Bishopville (Chladnit) schwanken die Angaben des Gehalts an Kieselsäure zwischen 70,4 Shepard und 57,5 Rammelsberg. Mit dem Eukrit von Juvinas, dessen Kieselsäure-Gehalt zwar 48,3, also nahe wie in obiger Analyse, lässt sich unser abnormer Pultusk nicht vergleichen, wie schon das Fehlen der Kalkerde und die sehr geringe Menge der Tonerde erweist. Obgleich fast ohne Nickeleisen und ohne Kugelbildung können wir den untersuchten Stein doch nur zu den Chondriten stellen.
 
-Es bietet sich nun die schwierige, leider noch nicht mit völliger Sicher-
-heit zu lösende Frage dar: aus welchem Mineral oder aus welchem Mineral-
-gemenge bestehen die Silicate der Pultusker Steine, nachdem wir erkannt
-haben (was der Augenschein kaum erwarten liess), dass die Mineraltheile
-des abnormen Steins sich nicht wesentlich von dem normalen Pultusk un-
-terscheiden.
+Es bietet sich nun die schwierige, leider noch nicht mit völliger Sicherheit zu lösende Frage dar: aus welchem Mineral oder aus welchem Mineralgemenge bestehen die Silikate der Pultusker Steine, nachdem wir erkannt haben (was der Augenschein kaum erwarten liess), dass die Mineralteile des abnormen Steins sich nicht wesentlich von dem normalen Pultusk unterscheiden.
 
-Beide Analysen (jene der normalen Steine nach Abzug des Magnetkies etc.)
-entsprechen sehr nahe einer Mischung, welche aus der Formel 4RO, 3810,
+Beide Analysen (jene der normalen Steine nach Abzug des Magnetkies etc.) entsprechen sehr nahe einer Mischung, welche aus der Formel 4RO, 3SiO₂ oder R₄Si₃O₁₀ folgt, worin R = Mg und Fe(Mn). Beide Analysen weisen im Vergleiche zu der aus jener Formel folgenden Mischung einen kleinen Überschuss an Kieselsäure auf, welchen man als gebunden an Tonerde, Natron (Kalk) annehmen kann. Jene Formel entspricht indess keinem bekannten Mineral und auch die mineralogische Untersuchung (namentlich die der gewöhnlichen Pultusker Steine, in denen neben Olivin noch ein zweites Silikat hervortritt) verwehrt die Annahme eines einzigen, wesentlich unsere Steine konstituirenden Silikats. Wir sehen uns deshalb genötigt jene Mischungen herzuleiten aus einem Gemenge zweier Magnesiasilikate, von denen eines, der Olivin, bereits durch die mineralogische Untersuchung gegeben ist. Bekannt sind drei Silikate der Magnesia:
 
-oder R8i,0, folgt, worin R=Mg und Fe(Mn). Beide Analysen weisen im
+Olivin = 2MgO, SiO₂ oder Mg₂ SiO₄  
+Enstatit = MgO, SiO₂ oder Mg SiO₃  
+Shepardit = 2MgO, 3SiO₂ oder Mg₂ Si₃O₈
 
-1) »Die Natriumlinie dauernd glänzend. Calcium 4 nur unbestimmt. Kalium gar nicht vorhan-
+Es ist nun einleuchtend, dass wir vom rein chemischen Gesichtspunkte aus die der obigen Formel 4RO, 3SiO₂ entsprechende Mischung der Pultusker Silikate in gleicher Weise erhalten durch
 
-den. Dr. Bettondorf.
-Ar
+1 Molekül Olivin + 2 Moleküle Enstatit,
 
-
-
-Vergleiche zu der aus jener Formel folgenden Mischung einen kleinen Ueber-
-schuss an Kieselsäure auf, welchen man als gebunden an Thonerde, Natron
-(Kalk) annehmen kann. Jene Formel entspricht indess keinem bekannten
-Mineral und auch die mineralogische Untersuchung (namentlich die der ge-
-wöhnlichen Pultusker Steine, in denen neben Olivin noch ein zweites Silicat
-hervortritt) verwehrt die Annahme eines einzigen, wesentlich unsere Steine
-konstituirenden Silicats. Wir sehen uns deshalb genöthigt jene Mischungen
-herzuleiten aus einem Gemenge zweier Magnesiasilicate, von denen eines,
-der Olivin, bereits durch die mineralogische Untersuchung gegeben ist.
-Bekannt sind drei Silicate der Magnesia:
-
-Olivin = 2MgO, SiO, oder Mg, SiO,
-
-Enstatit = MgO, 80, » Mg SiO,
-
-Shepardit = 2MgO, 35i0, » Mg, 5,0,
-Es ist nun einleuchtend, dass wir vom rein chemischen Gesichtspunkte aus
-die der obigen Formel 4RO, 38i0, entsprechende Mischung der Pultusker
-Silicate in gleicher Weise erhalten durch
-
-1 Molekül Olivin + 2 Moleküle Enstatit.
 sowie durch ein Gemenge von
 
-$ Molekülen Olivin + 1 Molekül Shepardit.
+3 Molekülen Olivin + 1 Molekül Shepardit.
 
-Zu welcher von diesen beiden allein möglichen Annahmen wir uns entschei-
-den müssen, kann nicht zweifelhaft sein.
+Zu welcher von diesen beiden allein möglichen Annahmen wir uns entscheiden müssen, kann nicht zweifelhaft sein.
 
-Der Enstatit ist bisher noch nie in irgend einem Meteoriten nachgewiesen
-worden, selbst kein anderes Mineral der Augit-Gruppe in der so zahlreichen
-Klasse der Chondrite. Der hypothetische meteorische Enstatit müsste in der
-Silicat-Verbindung in doppelter Menge vorhanden sein, wie der Olivin,
-dieses einzige bisher mit aller Bestimmtheit in den Chondriten nachgewie-
-sene Silieat. Deshalb erscheint die erstere jener beiden Combinationen als
-höchst unwahrscheinlich. ---
+Der Enstatit ist bisher noch nie in irgend einem Meteoriten nachgewiesen worden, selbst kein anderes Mineral der Augit-Gruppe in der so zahlreichen Klasse der Chondrite. Der hypothetische meteorische Enstatit müsste in der Silikat-Verbindung in doppelter Menge vorhanden sein, wie der Olivin, dieses einzige bisher mit aller Bestimmtheit in den Chondriten nachgewiesene Silikat. Deshalb erscheint die erstere jener beiden Kombinationen als höchst unwahrscheinlich. ---
 
-Die zweite Combination, 38 Mol. Olivin + 1 Mol. Shepardit, hat sogleich
-den Vortheil, dass sie /« der Magnesia- (resp. der Eisenoxydul-)Menge dem
-bekannten Mineral und nur '« derselben dem weniger bekannten Shepardit
-zuweist. Erinnern wir uns ferner, dass nach den genauesten mineralogischen
-Untersuchungen und Folgerungen G. Rose's der Chassignit wesentlich nur -
-aus Olivin besteht, der Chladnit (Bishopville) vorzugsweise aus Shepardit,
-der Shalkit ein Gemenge von 1 Mol. Olivin und 2 Mol. Shepardit darstellt,
-so bat die Annahme derselben Mineralien nur mit anderm Verhältnisie
+Die zweite Kombination, 3 Mol. Olivin + 1 Mol. Shepardit, hat sogleich den Vorteil, dass sie 3/4 der Magnesia- (resp. der Eisenoxydul-)Menge dem bekannten Mineral und nur 1/4 derselben dem weniger bekannten Shepardit zuweist. Erinnern wir uns ferner, dass nach den genauesten mineralogischen Untersuchungen und Folgerungen G. Roses der Chassignit wesentlich nur aus Olivin besteht, der Chladnit (Bishopville) vorzugsweise aus Shepardit, der Shalkit ein Gemenge von 1 Mol. Olivin und 2 Mol. Shepardit darstellt, so hat die Annahme derselben Mineralien nur mit anderm Verhältnisse in den Steinen von Pultusk, ja wohl überhaupt verbreitet in den Chondriten, gewiss einen hohen Grad von Wahrscheinlichkeit.
 
-
-
-in den Steinen von Pultusk, ja wohl überhaupt verbreitet in den Chondriten,
-gewiss einen hohen Grad von Wahrscheinlichkeit.
-
-Die Meteoriten --- nicht ganz unähnlich irdischen Gesteinen und doch in
-ihrer grossen Mehrzahl von ihnen s0 sehr verschieden --- verrathen Bedingungen
-der (Giesteinsbildung, wie sie in der uns bekannten Erdrinde niemals verei-
-nigt waren. Jene kosmischen Körper, welche kein neues Element der Erde
-zuführten, zunı grössten ‘Theile aus irdischen Mineralien gemengt sind, leiten
-unsere Blicke von der Erde hinweg in die mit unzählbaren, steinernen und
-eisernen Körpern erfüllten Räume des bewegungsreichen Sonnensystems.
-Wenn einerseits die Meteoriten zu beweisen scheinen, dass unser Planeten-
-system oder wenigstens eine gewisse Sphäre dieses Systems von gleichen
-Elementarstoffen erfüllt ist, ao erhalten wir andererseits durch jene wunder-
-baren Körper --- seien sie nun uranfängliche Gebilde oder Trümmer eines
-zerbrochenen Planeten --- vielleicht einen Fingerzeig in Bezug auf die Con-
-stitution des uns ewig verborgenen Erdinnern, dessen hohe specifische
-Schwere noch unerklärt ist.
+Die Meteoriten --- nicht ganz unähnlich irdischen Gesteinen und doch in ihrer grossen Mehrzahl von ihnen so sehr verschieden --- verraten Bedingungen der Gesteinsbildung, wie sie in der uns bekannten Erdrinde niemals vereinigt waren. Jene kosmischen Körper, welche kein neues Element der Erde zuführten, zum grössten Teile aus irdischen Mineralien gemengt sind, leiten unsere Blicke von der Erde hinweg in die mit unzählbaren, steinernen und eisernen Körpern erfüllten Räume des bewegungsreichen Sonnensystems. Wenn einerseits die Meteoriten zu beweisen scheinen, dass unser Planetensystem oder wenigstens eine gewisse Sphäre dieses Systems von gleichen Elementarstoffen erfüllt ist, so erhalten wir andererseits durch jene wunderbaren Körper --- seien sie nun uranfängliche Gebilde oder Trümmer eines zerbrochenen Planeten --- vielleicht einen Fingerzeig in Bezug auf die Konstitution des uns ewig verborgenen Erdinnern, dessen hohe spezifische Schwere noch unerklärt ist.
