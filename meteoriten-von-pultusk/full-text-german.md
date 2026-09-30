@@ -86,7 +86,7 @@ Chromeisenerz ist in sehr kleinen schwarzen, unmagnetischen Körnchen nur in ger
 Das spezifische Gewicht von sechs kleinen, ganz umrindeten Steinen ergab sich wie folgt:
 
 | ~ | absolutes Gew. | spez. Gew. | Temp.   |
-|—|—————-|————|———|
+|---|----------------|------------|---------|
 | 1 | 10,273         | 3,537      | 20° C.  |
 | 2 | 6,739          | 3,624      | 20°     |
 | 3 | 9,653          | 3,657      | 15 1/2° |
@@ -109,7 +109,7 @@ Die genaue Analyse eines Steins wie Pultusk ist eine schwierige, kaum vollkommen
 Zur Analyse des Nickeleisens wurden einige größere (zusammen 0,881 Gr. wiegende) Körner ausgesucht (Gew. 7,017 s. oben):
 
 |               |       |
-|—————|——-|
+|---------------|-------|
 | Schwefel      | 0,20  |
 | Phosphor*     | Spur  |
 | Eisen         | 86,84 |
@@ -123,7 +123,7 @@ Nicht eine Spur von Kupfer oder Zinn. Der Verlust besteht hauptsächlich in gel�
 Die unmagnetischen Teile besitzen folgende Zusammensetzung:
 
 |                       |        |
-|———————--|——--|
+|-----------------------|--------|
 | Chromeisen            | 0,34   |
 | Schwefel (Magnetkies) | 2,14   |
 | Eisen (Magnetkies)    | 3,29   |
@@ -141,7 +141,7 @@ Keine Spur von Kali konnte ich bei der Flusssäure-Analyse durch Platinchlorid n
 *) Dr. Bettendorf wies eine äußerst geringe Spur von Phosphor nach, indem er 0,5 Gr. des Nickeleisens in Königswasser löste, abdampfte, mit Schwefelsäure versetzte, wieder eindampfte, um Salzsäure und Salpetersäure zu verjagen. Nach Abscheidung einer geringen Menge Kieselsäure wurde molybdänsaures Ammoniak zugesetzt; es entstand ein äußerst geringer, unwägbarer Niederschlag, indem sich zugleich die Lösung stärker gelb färbte. In jenem Niederschlag von phosphor-molybdänsaurem Ammoniak beträgt der Gehalt an Phosphorsäure nur 3 pZt.
 
 |              |       |            |
-|————--|——-|————|
+|--------------|-------|------------|
 | Kieselsäure  | 48,88 | Ox = 26,07 |
 | Tonerde      | 1,27  | 0,59       |
 | Magnesia     | 31,26 | 12,50      |
@@ -161,7 +161,7 @@ unlöslich 52,84 pZt. bestehend aus Chromeisen und Silikat.
 Die Analyse des löslichen Teils ergab
 
 | ~                         | ~    | oder nach Abzug des | Magnetkieses reduziert auf 100: |
-|—————————|——|———————|——————————--|
+|---------------------------|------|---------------------|--------------------------------|
 | Schwefel                  | 3,1  |                     |                                |
 | Eisen                     | 4,8  |                     |                                |
 | Kieselsäure               | 32,5 | 35,4                | Ox. = 18,88                    |
@@ -174,7 +174,7 @@ Die Analyse des löslichen Teils ergab
 Die unlöslichen Silikate berechnen sich nun unter Zugrundelegung der beiden vorstehenden auf 100 reduzierten Analysen, sowie der ermittelten Zusammensetzung des unmagnetischen Teils (0,3 Chromeisen, 3,7 Magnetkies, 43,5 lösliche, 52,5 unlösliche Silikate) wie folgt:
 
 |                           |         |             |
-|—————————|———|————-|
+|---------------------------|---------|-------------|
 | Kieselsäure               | 60,1    | Ox. = 32,05 |
 | Tonerde                   | 1,7     | 0,79        |
 | Kalkerde                  | 0,6     | 0,17        |
@@ -192,7 +192,7 @@ Das Gewicht des ungewöhnlichen Pultusk ist weit niedriger als das der Chondrite
 Das Nickeleisen, welches nicht in zackigen Partien, sondern in runden Körnchen vorhanden ist, sich deshalb mit dem Magneten bestimmen liess, beträgt 1,03 pZt. vom Gewicht des Steins. Dieser zeigt nach Abzug des Nickeleisens folgende Mischung:
 
 |                       |       |             |
-|———————--|——-|————-|
+|-----------------------|-------|-------------|
 | Schwefel (Magnetkies) | 0,05  |             |
 | Eisen (Magnetkies)    | 0,08  |             |
 | Kieselsäure           | 47,58 | Ox. = 25,37 |
