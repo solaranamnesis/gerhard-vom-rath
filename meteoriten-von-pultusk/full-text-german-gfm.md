@@ -101,7 +101,7 @@ Zur Analyse des Nickeleisens wurden einige größere (zusammen 0,881 Gr. wiegend
 |               |       |
 |—————|——-|
 | Schwefel      | 0,20  |
-| Phosphor[^7]     | Spur  |
+| Phosphor[^7]  | Spur  |
 | Eisen         | 86,84 |
 | Nickel        | 6,44  |
 | Magnesia      | 1,61  |
@@ -177,17 +177,17 @@ Das Gewicht des ungewöhnlichen Pultusk ist weit niedriger als das der Chondrite
 
 Das Nickeleisen, welches nicht in zackigen Partien, sondern in runden Körnchen vorhanden ist, sich deshalb mit dem Magneten bestimmen liess, beträgt 1,03 pZt. vom Gewicht des Steins. Dieser zeigt nach Abzug des Nickeleisens folgende Mischung:
 
-|                       |       |             |
+|                        |       |             |
 |———————--|——-|————-|
-| Schwefel (Magnetkies) | 0,05  |             |
-| Eisen (Magnetkies)    | 0,08  |             |
-| Kieselsäure           | 47,58 | Ox. = 25,37 |
-| Tonerde               | 1,88  | 0,88        |
-| Magnesia              | 31,55 | 12,62       |
-| Kalkerde              | 0,00  |             |
-| Eisenoxidul           | 16,21 | 3,60        |
-| Alkalien (Verlust)[^6]   | 2,65  |             |
-| ~                     | 100,00|             |
+| Schwefel (Magnetkies)  | 0,05  |             |
+| Eisen (Magnetkies)     | 0,08  |             |
+| Kieselsäure            | 47,58 | Ox. = 25,37 |
+| Tonerde                | 1,88  | 0,88        |
+| Magnesia               | 31,55 | 12,62       |
+| Kalkerde               | 0,00  |             |
+| Eisenoxidul            | 16,21 | 3,60        |
+| Alkalien (Verlust)[^6] | 2,65  |             |
+| ~                      | 100,00|             |
 
 Obgleich unser Stein fast frei von Nickeleisen ist, so stimmt seine Mischung dennoch nicht überein mit irgend einem der eisenarmen oder eisenfreien Aerolithen, Loutolax, der Typus des Howardits enthält nur 37,4 pZt. Kieselsäure, Chassigny (nach Damour, Compt. rend. 1862 t. 4 p. 591) nur 35,2; Shalka (der Typus des Shalkits) hingegen 57,6 Kieselsäure; für Bishopville (Chladnit) schwanken die Angaben des Gehalts an Kieselsäure zwischen 70,4 Shepard und 57,5 Rammelsberg. Mit dem Eukrit von Juvinas, dessen Kieselsäure-Gehalt zwar 48,3, also nahe wie in obiger Analyse, lässt sich unser abnormer Pultusk nicht vergleichen, wie schon das Fehlen der Kalkerde und die sehr geringe Menge der Tonerde erweist. Obgleich fast ohne Nickeleisen und ohne Kugelbildung können wir den untersuchten Stein doch nur zu den Chondriten stellen.
 
